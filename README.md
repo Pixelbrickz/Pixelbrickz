@@ -1,10 +1,4 @@
 
 》placeholder image 》
+![Untitled64_20240921234313](https://github.com/user-attachments/assets/57d60e55-1455-4d1e-8019-d9e105a04cc9)
 
-
-![Pokemon Pixel Wallpaper Iphone at Glendacallahan](https://github.com/user-attachments/assets/38659f1c-041e-48a8-a21a-a9089ea26223)
-
-wip
-
-![Untitled46_20240825191942](https://github.com/user-attachments/assets/b0732359-6259-436f-8b5f-6937938a51e8)
-LOOK MATCHA ! !
