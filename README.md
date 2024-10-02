@@ -17,7 +17,7 @@ I use tone tags, It would be helpful to me if you used them towards me as i have
 ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ────⋆⋅☆⋅⋆───
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤ▶︎ ㅤTr:ud, Pokemon, bloxtales, doodle world, dandys world, usagi shima, CoS, Gasa_ , Phighting, mc, splatoon etc +
+ㅤㅤㅤㅤㅤㅤ▶︎ ㅤTr:ud, Pokemon, bloxtales, doodle world, dandys world, usagi shima, CoS, Gasa_ , Phighting, mc, splatoon, running from the internet, ia etc +
 
 ㅤㅤㅤㅤ  
 
@@ -35,5 +35,7 @@ I use tone tags, It would be helpful to me if you used them towards me as i have
 This is a wip & things are being added frequently.
 
 NOTE. i do not support rox, and i do not like/support Tbradm or Sonar studios. 
+
+(rox - dandys world . tbradm - loomian legacy . Sonar studios - dragon adventures, CoS + more)
 
 please iwec if you interact with me with interest/ in any of the fandoms of these games.
