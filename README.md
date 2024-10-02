@@ -17,7 +17,7 @@ I use tone tags, It would be helpful to me if you used them towards me as i have
 ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ────⋆⋅☆⋅⋆───
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤ
-ㅤ▶︎ ㅤTr:ud, Pokemon, bloxtales, doodle world, dandys world, usagi shima, CoS, Gasa_ , Phighting, mc, splatoon etc +
+ㅤㅤㅤㅤㅤㅤ▶︎ ㅤTr:ud, Pokemon, bloxtales, doodle world, dandys world, usagi shima, CoS, Gasa_ , Phighting, mc, splatoon etc +
 
 ㅤㅤㅤㅤ  
 
