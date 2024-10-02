@@ -7,7 +7,8 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ✦•┈๑⋅⋯ ⋯⋅๑┈•✦
 
-  ㅤㅤㅤㅤㅤUsually offtab doing hw or on roblox etc, Dont be affraid to whisper/talk to me!! i enjoy interaction ꩜.ᐟ ㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤ  If i go quiet or talk differently im jst scard wht to say, its not intentional ignorance D :  
+  ㅤㅤㅤㅤㅤUsually offtab doing hw or on roblox etc, Dont be affraid to whisper/talk to me!! i enjoy interaction ꩜.ᐟ ㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤ
+  ㅤ  If i go quiet or talk differently im jst scard wht to say, its not intentional ignorance D :  
  
 I use tone tags, It would be helpful to me if you used them towards me as i have a hard time reading tone sometimes ! !
                                       
