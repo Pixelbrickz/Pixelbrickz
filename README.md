@@ -15,14 +15,16 @@ I use tone tags, It would be helpful to me if you used them towards me as i have
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  Current interests
 ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ────⋆⋅☆⋅⋆───
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤTr:ud, Pokemon, bloxtales, doodle world, dandys world, usagi shima, CoS, Gasa_ , Phighting, mc, splatoon etc +
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤTr:ud, Pokemon, bloxtales, doodle world, dandys world, usagi shima, CoS, Gasa_ , Phighting, mc, splatoon etc +
 
 ㅤㅤㅤㅤ  
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤStatus ! ! ˎˊ˗
 ㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤ────⋆⋅☆⋅⋆───
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤAway : offtab or afk  ֶָ֢ Busy : likely doing hw or Afk ֶָ֢ looking 2 chat/rp : not used.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+Away : offtab or afk  ֶָ֢ Busy : likely doing hw or Afk ֶָ֢ looking 2 chat/rp : not used.
 .
 
 
