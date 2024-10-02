@@ -3,7 +3,7 @@
 ![Untitled64_20240921234313](https://github.com/user-attachments/assets/57d60e55-1455-4d1e-8019-d9e105a04cc9)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⊹ ࣪ ☘︎ㅤㅤRebs / brick(s)ㅤㅤ☘︎  ࣪ ⊹  
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤᯓ★ㅤㅤshe/her , they/them, or he/him
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ》image placeholder  》
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ》image placeholder  》
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ✦•┈๑⋅⋯ ⋯⋅๑┈•✦
 ㅤㅤ
@@ -11,7 +11,7 @@
  
 I use tone tags, It would be helpful to me if you used them towards me as i have a hard time reading tone sometimes ! !
                                       
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ Once i get comfortable enough being around you I'll be rlly friendly & talk more ^_ ^
+ㅤㅤㅤㅤㅤㅤ Once i get comfortable enough being around you I'll be rlly friendly & talk more ^_ ^
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  Current interests
 ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ────⋆⋅☆⋅⋆───
