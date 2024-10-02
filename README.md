@@ -6,7 +6,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ》image placeholder  》
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ✦•┈๑⋅⋯ ⋯⋅๑┈•✦
-ㅤUsually offtab doing hw or on roblox etc, Dont be affraid to whisper/talk to me!! i enjoy interaction ꩜.ᐟ ㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤ▶︎ Usually offtab doing hw or on roblox etc, Dont be affraid to whisper/talk to me!! i enjoy interaction ꩜.ᐟ ㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤ
   ㅤ If i go quiet or talk differently im jst scard wht to say, its not intentional ignorance D :  
  
 I use tone tags, It would be helpful to me if you used them towards me as i have a hard time reading tone sometimes ! !
@@ -16,7 +16,7 @@ I use tone tags, It would be helpful to me if you used them towards me as i have
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  Current interests
 ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ────⋆⋅☆⋅⋆───
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤTr:ud, Pokemon, bloxtales, doodle world, dandys world, usagi shima, CoS, Gasa_ , Phighting, mc, splatoon etc +
+ㅤㅤㅤㅤㅤ▶︎ ㅤTr:ud, Pokemon, bloxtales, doodle world, dandys world, usagi shima, CoS, Gasa_ , Phighting, mc, splatoon etc +
 
 ㅤㅤㅤㅤ  
 
@@ -24,7 +24,8 @@ I use tone tags, It would be helpful to me if you used them towards me as i have
 ㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤ────⋆⋅☆⋅⋆───
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-Away : offtab or afk  ֶָ֢ Busy : likely doing hw or Afk ֶָ֢ looking 2 chat/rp : not used.
+
+▶︎ Away : offtab or afk  ֶָ֢ Busy : likely doing hw or Afk ֶָ֢ looking 2 chat/rp : not used.
 .
 
 
