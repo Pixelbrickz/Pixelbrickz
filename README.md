@@ -3,11 +3,11 @@
 ![Untitled64_20240921234313](https://github.com/user-attachments/assets/57d60e55-1455-4d1e-8019-d9e105a04cc9)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⊹ ࣪ ☘︎ㅤㅤRebs / brick(s)ㅤㅤ☘︎  ࣪ ⊹  
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤᯓ★ㅤㅤshe/her , they/them, or he/him
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ》image placeholder  》
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ》image placeholder  》
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ✦•┈๑⋅⋯ ⋯⋅๑┈•✦
 ㅤㅤ
-ㅤㅤㅤ▶︎ Usually offtab doing hw or on roblox etc, Dont be affraid to whisper/talk to me!! i enjoy interaction ꩜.ᐟ ㅤㅤㅤㅤㅤㅤㅤㅤIf i go quiet or talk differently im jst scard wht to say, its not intentional ignorance D :  
+ㅤㅤㅤㅤㅤㅤㅤㅤ▶︎ Usually offtab doing hw or on roblox etc, Dont be affraid to whisper/talk to me!! i enjoy interaction!ㅤIf i go quiet or talk differently im jst scard wht to say, its not intentional ignorance D :  
  
 I use tone tags, It would be helpful to me if you used them towards me as i have a hard time reading tone sometimes ! !
                                       
