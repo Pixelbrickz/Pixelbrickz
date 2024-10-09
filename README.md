@@ -1,5 +1,3 @@
-![Untitled73_20241006112133](https://github.com/user-attachments/assets/cf9c77a8-8ca0-4368-8266-f55af5fe1925)
-
 》placeholder image 》
 ![Untitled64_20240921234313](https://github.com/user-attachments/assets/57d60e55-1455-4d1e-8019-d9e105a04cc9)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⊹ ࣪ ☘︎ㅤㅤRebs / brick(s)ㅤㅤ☘︎  ࣪ ⊹  
