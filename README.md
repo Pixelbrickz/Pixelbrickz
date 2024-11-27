@@ -1,4 +1,6 @@
 everything here is a wip but uhhh thought u should know THESE!!
+
+
 i currently suffer from retrograde Dissociative amnesia, if i happen to forget who u are be prepared to help me remember im zo sorrye,, Remind me of certain things frequently i WILL tend to forget!
 
 
