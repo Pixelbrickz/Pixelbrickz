@@ -9,7 +9,7 @@ Im HEAVILY unwell mentally and have low self-esteem/worth.
 I get really happy being around people regardless of who u are!!! IM A VERY ISOLATED AND LONELY PEROSN (irl) SO BEING NEAR U MAKES ME JOLLY!! ( mainly why im always c+h, i have a massive cuddle comfort ^_^)
 
 
-I get irritated if im alone for a long time which can make me sound dry or uninterested in talking to u. but i promise its not on purpose!!
+I get irritated if im alone for a long time which can make me sound dry or uninterested in talking to u if we haven't met. but i promise its not on purpose/or ur fault!!
 
 if im oversimulated my spelling will likely get messy im sorry
 
