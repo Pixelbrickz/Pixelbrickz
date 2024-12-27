@@ -14,4 +14,5 @@ I get irritated if im alone for a long time which can make me sound dry or unint
 if im oversimulated my spelling will likely get messy im sorry
 
 
-bonus : I will usually NEVER ask for clarification! im a great decoder and catch onto things easily so i have no issue reading what u say ^_^
+i can read most grammar easily so i will usually never ask for clarification!! 
+typing quirks are fine to use while talking to me ^_^
