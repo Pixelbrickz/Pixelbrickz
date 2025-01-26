@@ -4,6 +4,7 @@ byi
 I have social anxiety & im mentally unwell, i might say and do things causally that could be deemed concerning.                                                                            
 please tell me if your ever bothered, im a MASSIVE people pleaser.
 
+im a huge introvert.                                                                                                                                                                      
 i might sound nervous, distant, or dry if we're never met, im unsure to approuch people i dont know! [you intimidate me : ( ] 
 i can be very talkative or jst go completely silent mid conversation, i usually get alot more comfortable after a few simple exchanges of words tho.
 sometimes i need clarification as i tend to overthink or misinterpret what is said to me. always iwc if we've never met please.
