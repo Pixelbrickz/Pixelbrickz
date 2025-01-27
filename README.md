@@ -12,7 +12,7 @@ sometimes i need clarification as i tend to overthink or misinterpret what is sa
 if you have c+h in your name i might sit near you but probably not talk unless you do or i feel like i would like to! 
 
 i can normally keep a conversation once its an interest i enjoy but if not i'll usually jst get quiet, im unsure what to say.
-im usually alot more interactive and happy near my friends so if we're new friends be aware>>!
+im usually alot more interactive and happy near my friends 
 
 
 dni                                                                                                                                                                                       
