@@ -24,6 +24,3 @@ interests
 plenty will be unlisted i have too many...                                                                                                                                                  
 coding, botany, drawing, Pokemon, usagi shima, rhythm games, bss(bee swarm simulator), running from the internet, blocktales, DOODLE world, phighting, pyrite adventure 1 & 2, creatures of sonaria, super doomspire, forsaken, Dvn, Roblox myths (occasionally) 
 
-
-absolute unrelated,                                                                                                                                                                       
-i've suffered from 7 concussions. likely the reason for alot of my issues,,, hii
