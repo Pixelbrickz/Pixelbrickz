@@ -12,8 +12,8 @@ sometimes i need clarification as i tend to overthink or misinterpret what is sa
 
  [frolicking acround my chair.... cuddling makes me happyehee]                                                                                                                                                                              
                                                                                                                                                                                         
-no dni other then problematic people, int freely, please, go ahead! 
-
+no dni other then problematic people, int freely, please, go ahead!                                                                                                                       
+[i dont block freely alot but if im in a bad mood or paranoid i might block freely or turn off chat.]
 
 interests                                                                                                                                                                                 
 plenty will be unlisted i have too many...                                                                                                                                                  
