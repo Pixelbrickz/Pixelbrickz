@@ -5,7 +5,8 @@ I have social anxiety & im mentally unwell, i might say and do things causally t
 please tell me if your ever bothered by me, im a MASSIVE people pleaser i would like every1 to be comfortable! 
 
 im a huge introvert.  
-and will likely get tired of a conversation after a while if we aren't well acquainted, i have a low social battery.                                                                      
+Im scared to approach new people or mutuals alot, forgive me, i say sorry/apologize alot ( ':                                                                                                       
+might get tired of a conversation after a while if we aren't well acquainted (and it doesn't interest me) i have a low social battery.                                                                      
 i might sound nervous, distant, or dry if we're never met, im unsure to approuch people i dont know! [you intimidate me : ( ]                                                             
 i can be very talkative or jst go completely silent mid conversation, again,,, forgive me                                                                                    
 sometimes i need clarification as i tend to overthink or misinterpret what is said to me. always iwc if we've never met please.                                                           
