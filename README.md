@@ -7,7 +7,7 @@ please tell me if your ever bothered by me, im a MASSIVE people pleaser i would 
 im a huge introvert.  
 Im scared to approach new people or mutuals alot, forgive me, i say sorry/apologize alot ( ':                                                                                                       
 might get tired of a conversation after a while if we aren't well acquainted (and it doesn't interest me) i have a low social battery.                                                                      
-i might sound nervous, distant, or dry if we're never met, im unsure to approuch people i dont know! [you intimidate me : ( ]                                                             
+i might sound nervous, distant, or dry if we're never met, im unsure to approach people i dont know! [you intimidate me : ( ]                                                             
 i can be very talkative or jst go completely silent mid conversation, again,,, forgive me                                                                                    
 sometimes i need clarification as i tend to overthink or misinterpret what is said to me. always iwc if we've never met please.                                                           
 (BESIDES ALL THESE I SWEAR IM RLLY NICE AND COOL ONCE WE'RE FRIENDS... TRUST GUYS)
