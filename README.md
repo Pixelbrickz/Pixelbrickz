@@ -1,4 +1,6 @@
-temporarily here byi, dni and interests because i can NOT stay still and work on socials... 
+temporarily here byi, dni and interests because i can NOT stay still and work on socials...                                                                                               
+(this changes alot, im very forgetful about myself forgive me : (! )
+
 
 byi                                                                                                                                                                                         
 I have social anxiety & im mentally unwell, i might say and do things causally that could be deemed concerning.                                                                            
@@ -12,9 +14,9 @@ i can be very talkative or jst go completely silent mid conversation, again,,, f
 sometimes i need clarification as i tend to overthink or misinterpret what is said to me. always iwc if we've never met please.                                                           
 (BESIDES ALL THESE I SWEAR IM RLLY NICE AND COOL ONCE WE'RE FRIENDS... TRUST GUYS)
 
- [frolicking acround my chair.... cuddling makes me happyehee]                                                                                                                                                                              
+                                                                                                                                                                               
                                                                                                                                                                                         
-no dni other then problematic people or supporters of problematic creators/media, besides that, int freely, please, go ahead!                                                                                                                       
+no dni other then problematic people/supporters of problematic creators/media, & ex friends. besides that, int freely, please, go ahead!                                                                                                                       
 [i dont block freely alot but if im in a bad mood or paranoid i might block freely or turn off chat.]
 
 interests                                                                                                                                                                                 
