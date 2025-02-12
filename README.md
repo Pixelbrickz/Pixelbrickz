@@ -12,7 +12,7 @@ i can be very talkative or jst go completely silent mid conversation, again,,, f
 sometimes i need clarification as i tend to overthink or misinterpret what is said to me. always iwc if we've never met pls                                                           
 (BESIDES ALL THESE I SWEAR IM RLLY NICE AND COOL ONCE WE'RE FRIENDS... TRUST GUYS)
 
-huge cuddle comfort bro pls sit next to me for even a minute and i'll be ABSOLUTELY JOLLY !! SAME WITH AFFECTION PLSS ^ u^                                                                
+huge cuddle comfort pls sit next to me for even a minute and i'll be ABSOLUTELY JOLLY !! SAME WITH AFFECTION PLSS ^ u^                                                                
 ALWAYS C+H WELCOMED,, CUDDLE FREELY! 
 
 WARNING THO IM ALWAYS USUALLY TIRED OR ANXIOUS SO MY GRAMMAR MIGHT BE A LITTLE MESSY (hint hint the mispelled words sorry..)
