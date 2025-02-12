@@ -12,11 +12,14 @@ i can be very talkative or jst go completely silent mid conversation, again,,, f
 sometimes i need clarification as i tend to overthink or misinterpret what is said to me. always iwc if we've never met pls                                                           
 (BESIDES ALL THESE I SWEAR IM RLLY NICE AND COOL ONCE WE'RE FRIENDS... TRUST GUYS)
 
-huge cuddle comfort bro pls sit next to me for even a minute and i'll be ABSOLUTELY JOLLY !! SAME WITH AFFECTION PLSS ^ u^
+huge cuddle comfort bro pls sit next to me for even a minute and i'll be ABSOLUTELY JOLLY !! SAME WITH AFFECTION PLSS ^ u^                                                                
+ALWAYS C+H WELCOMED,, CUDDLE FREELY! 
+
+WARNING THO IM ALWAYS USUALLY TIRED OR ANXIOUS SO MY GRAMMAR MIGHT BE A LITTLE MESSY (hint hint the mispelled words sorry..)
                                                                                                                                                                                         
-no dni other then problematic people/creator supporterz, & ex friends. besides that, int freely, GO AHEAD!! I LUV NEW FRIENDS WAH!                                                                                                                       
+no real dni other then problematic people/creator supporterz, & ex friends. besides that, int freely, GO AHEAD!! I LUV NEW FRIENDS WAH!                                                                                                                       
 [i dont block freely alot but if im in a bad mood or paranoid i might block freely or turn off chat.]
 
 interests                                                                                                                                                                                 
 plenty will be unlisted,, i have too many...                                                                                                                                                  
-coding, botany, drawing, Mo4, Pokemon, usagi shima, rhythm games, forsaken, TRUD,  bss(bee swarm simulator), running from the internet, blocktales, DOODLE world, phighting, pyrite adventure 1 & 2, creatures of sonaria, super doomspire, forsaken, Dvn, deadroad, epic food fighters, skateslidefunk, (can u tell i like alot of up & coming roblox games yet.. CHECK THEM OUT THO THEY'RE AWESOME ^_^.)
+coding, botany, drawing, Mo4, Pokemon, usagi shima, rhythm games, forsaken, TRUD,  bss(bee swarm simulator), running from the internet, blocktales, DOODLE world, phighting, pyrite adventure 1 & 2, creatures of sonaria, super doomspire, forsaken, Dvn, deathroad, epic food fighters, skateslidefunk, foo12 (can u tell i like alot of up & coming roblox games yet.. CHECK THEM OUT THO THEY'RE AWESOME ^_^.)
