@@ -1,3 +1,6 @@
+**if we arent close how i talk to you/my thoughts on you can sometimes not reflect my mood or true feelings, i am emotionally numb as a way to cope w/trauma.**                           
+**please bare with me im trying my best. ^_^**                                                                                                                                                
+
 (this changes alot, im very forgetful about myself, forgive me :( )
 
 
@@ -24,6 +27,4 @@ coding, botany, drawing, Mo4, Pokemon, usagi shima, rhythm games, phighting, TRU
                                                                                                                                                                                     (rarely will you see me interact with the fandom of ANY/all interests i have however.)
 
 edit : oh, ps. i forgot to add i have horrible memory ontop of dissociative & retrograde amnesia, i might forget u if we aren't close.                                                    
-in some cases if we arent close how i talk to you and my thoughts on you can sometimes not reflect my mood or true feelings, i am emotionally numb as a way to cope w/trauma.
-
 i am an empath, i also tend to jst try and match ur energy in conversations 
