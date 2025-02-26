@@ -20,7 +20,8 @@ no real dni other then problematic people/creator supporterz, & ex friends. besi
 
 interests                                                                                                                                                                                 
 plenty will be unlisted,, i have too many...                                                                                                                                                  
-coding, botany, drawing, Mo4, Pokemon, usagi shima, rhythm games, phighting, TRUD,  bss(bee swarm simulator), running from the internet, blocktales, DOODLE world, phighting, pyrite adventure 1 & 2, creatures of sonaria, dragon adventures, super doomspire, STH, forsaken, Dvn, deadroad, epic food fighters, skateslidefunk, foo12 
+coding, botany, drawing, Mo4, Pokemon, usagi shima, rhythm games, phighting, TRUD,  bss(bee swarm simulator), running from the internet, blocktales, DOODLE world, phighting, pyrite adventure 1 & 2, creatures of sonaria, dragon adventures, super doomspire, STH, forsaken, Dvn, deadroad, epic food fighters, skateslidefunk, foo12                                        
+                                                                                                                                                                                    (rarely will you see me interact with the fandom of ANY/all interests i have however.)
 
 edit : oh, ps. i forgot to add i have horrible memory ontop of dissociative & retrograde amnesia, i might forget u if we aren't close.                                                    
 in some cases if we arent close how i talk to you and my thoughts on you can sometimes not reflect my mood or true feelings, i am emotionally numb as a way to cope w/trauma.
