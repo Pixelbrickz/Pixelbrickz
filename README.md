@@ -8,8 +8,10 @@ byi
 I have social anxiety & im mentally unwell, i try my best to suite u ^_^!                                                                             
 
 im a huge introvert,  
-Im scared to approach new people or mutuals alot, forgive me, i say sorry/apologize alot ( ':                                                                                             i might sound nervous, distant, or dry if we're never met, im unsure to approach people i dont know!                                                           
-i can be very talkative or jst go completely silent mid conversation, again,,, forgive me                                                                                    
+i can be very talkative or jst go completely silent mid conversation,, forgive me                                                                                                        
+i am an empath and also happen to be a HPS *(highly sensitive person)* strong emotions do accumulate & bother me :(.                                               
+*mild fear of people, if we haven't met i might just be mute, i swear tho i would love to talk 2 u ^_^!! just give me time to warm up :)*                                                 
+im an entirely different person if we're friends though, quite literally, im very friendly, EXTREMELUY. and forgiving !!                                                                                  
 sometimes i need clarification as i tend to overthink or misinterpret what is said to me. always iwc if we've never met pls                                                           
 (BESIDES ALL THESE I SWEAR IM RLLY NICE AND COOL ONCE WE'RE FRIENDS... TRUST GUYS)
 
@@ -27,4 +29,4 @@ coding, botany, drawing, Mo4, Pokemon, usagi shima, rhythm games, phighting, TRU
                                                                                                                                                                                     (rarely will you see me interact with the fandom of ANY/all interests i have however.)
 
 edit : oh, ps. i forgot to add i have horrible memory ontop of dissociative & retrograde amnesia, i might forget u if we aren't close.                                                    
-i am an empath, i also tend to jst try and match ur energy in conversations 
+, i also tend to jst try and match ur energy in conversations 
