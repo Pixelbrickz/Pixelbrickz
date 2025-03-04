@@ -4,12 +4,13 @@
 (this is a minor about me im just not motivated to remake my socials.)                                                                                                                                                                                     
 I have extreme social anxiety & im mentally unwell, i try my best to suite u ^_^!                                      
 im a huge introvert, u likely wont see me near people im not friends with. 
-i can be very talkative or jst go completely silent or loose interest mid conversation im so genuinely sorry
+i can be very talkative or jst go completely silent mid conversation im so genuinely sorry
 im extremely friendly and jolly person once i warm up to you ! !                                                        
-I happen to be an empath,, my absolute agony. i get burnt out quickly : (                                     
+                             
 
 
 interests since u were kind enough to check my github : )                                                                                                                                                                                                                                                                                                                        
 botany, drawing, Mo4, Pokemon, usagi shima, rhythm games, phighting, TRUD,  bss(bee swarm simulator), running from the internet, blocktales, DOODLE world, phighting, pyrite adventure 1 & 2, creatures of sonaria, dragon adventures, STH, forsaken, Dvn, deadroad, epic food fighters, skateslidefunk, foo12, voice acting, 3d modeling, coding                                       
+                                                                                                                   
                                                                                                                         if you happen to share one of these interests feel free to talk to me i love talking about my interests :) ! !         
  however if its a game interest iwc for all of these, u guys scare me                                                                                                                        
