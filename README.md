@@ -15,4 +15,4 @@ botany, drawing, Mo4, Pokemon, usagi shima, rhythm games, phighting, TRUD,  bss(
                                                                                                                         if you happen to share one of these interests feel free to talk to me i love talking about my interests :) ! !         
  however if its a game/media interest iwc for all of these, u guys scare me                                                                                                                         
  
-*no dni other then basic criteria & problematic people/media supporters, i'll just figure out wether i like you or not myself*
+*no real dni other then basic criteria & problematic people/media supporters, i'll just figure out wether i like you or not myself*
