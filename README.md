@@ -1,7 +1,3 @@
-IF YOU ASSOCIATE/ARE FRIENDS WITH MASHIRO (@kichijoji199X / @HELLOJOHNDOE or *@caelxstinus* on discord                  
-OR JULES/JULIET (@(?) on discord, *conners not here* on pt i think.)                                                     
-I'D PREFER U LIMIT INTERACTIONS, wanna know why? dm me.
-
 **im emotionally numb.**                           
 *please bare with me*
 
