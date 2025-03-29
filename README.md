@@ -8,7 +8,7 @@ im an extremely friendly and jolly person once i warm up to you, just treat me w
                              
 
 
-interests                                                                                                                                                                                                                                                                                                                       
+**interests**                                                                                                                                                                                                                                                                                                                       
 botany, drawing, Mo4, Pokemon, usagi shima, rhythm games, phighting, TRUD,  bss(bee swarm simulator), running from the internet, blocktales, DOODLE world, phighting, pyrite adventure 1 & 2, creatures of sonaria, dragon adventures, STH, forsaken, Dvn, deadroad, epic food fighters, skateslidefunk, foo12, voice acting, 3d modeling, coding, UNORTHODOX ACCOUNTING
   
                                                                                                                                                                                                                                                if you happen to share one of these interests feel free to talk to me i love talking about my interests :) ! !         
