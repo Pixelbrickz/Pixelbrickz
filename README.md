@@ -1,4 +1,4 @@
-![1000000396](https://github.com/user-attachments/assets/4c882b7b-0304-4310-965e-dd43c975cdee)
+![1000000399](https://github.com/user-attachments/assets/a692c1a5-9e5b-4570-a1a2-f3552ca24f8f)
 
 
 remaking thus... wip!
