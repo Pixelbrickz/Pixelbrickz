@@ -2,4 +2,6 @@
 
 ![](https://komarev.com/ghpvc/?username=pixelbrickz&color=77c5eb&label=ALLIES!)
 
-remaking thus... wip!
+mood down so long im about to retheme this entire profile bruhh
+
+i swear I'll actually put stuff about me so i don't sound like a nameless stranger hi
