@@ -1,6 +1,11 @@
+![](https://komarev.com/ghpvc/?username=pixelbrickz&color=9c994e&label=notes)
+
+![1000000795](https://github.com/user-attachments/assets/bd8ace68-a5c3-4793-b656-4f8e0ba85175)
 
 
-![](https://komarev.com/ghpvc/?username=pixelbrickz&color=77c5eb&label=notes)
+
+
+
 
 WORK IN PROGRESS !!
 
