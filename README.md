@@ -4,6 +4,10 @@
 <p align="center">
 ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ 
 </p>
+<p align="center">
+  Team Comedy you better cook 💔💔
+  </p>
+
   
 <p align="center">
 <img width="350" height="500" alt="1000001102" src="https://github.com/user-attachments/assets/67a24a7d-0c7f-43e6-9222-3a435d946929" />
