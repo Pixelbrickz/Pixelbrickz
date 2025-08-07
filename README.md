@@ -1,11 +1,11 @@
 <p align="center">
-  <img width="110" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=eca113&label=COMEDIES_🎭">
+  <img width="110" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=eca113&label=hopus_!!">
 </p>
 <p align="center">
 ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ 
 </p>
 <p align="center">
-  Team Comedy you better cook 💔💔
+  yeahhh i gotta fix this im drawin..
   </p>
 
   
