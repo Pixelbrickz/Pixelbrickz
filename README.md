@@ -22,3 +22,9 @@ WORK IN PROGRESS !!
 <p align="center">
 i swear I'll actually put stuff about me so i don't sound like a nameless stranger hi
 </p>
+
+<div align="center">
+  
+  [rentry](https://rentry.co/BAR3DFANGS) | [strawpage]() | [pronoun.cc]()
+
+  some links arent here / will be added 
