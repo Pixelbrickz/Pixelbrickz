@@ -25,6 +25,6 @@ i swear I'll actually put stuff about me so i don't sound like a nameless strang
 
 <div align="center">
   
-  [rentry](https://rentry.co/BAR3DFANGS) | [strawpage]() | [pronoun.cc]()
+  [rentry](https://rentry.co/BAR3DFANGS) | [strawpage](https://pronouns.cc/@BLUE_RIBBON.) | [pronoun.cc]()
 
   some links arent here / will be added 
