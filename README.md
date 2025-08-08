@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="110" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=eca113&label=hopus_!!">
+  <img width="110" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=39C335&label=hopus_!!">
 </p>
 <p align="center">
 ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ 
