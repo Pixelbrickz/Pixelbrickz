@@ -2,16 +2,13 @@
   <img width="110" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=39C335&label=hopus_!!">
 </p>
 <p align="center">
-┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ 
+┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅ ┅
 </p>
-<p align="center">
-  yeahhh i gotta fix this im drawin..
-  </p>
+
 
   
 <p align="center">
-<img width="350" height="500" alt="1000001102" src="https://github.com/user-attachments/assets/67a24a7d-0c7f-43e6-9222-3a435d946929" />
-</p>
+<img width="500" height="500" alt="1000001303" src="https://github.com/user-attachments/assets/ed73bf73-4a50-45c5-ae3b-6880d2d2967b" /></p>
 
 
 
