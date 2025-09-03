@@ -21,7 +21,7 @@ WORK IN PROGRESS !!
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Love+Ya+Like+A+Sister&size=25&pause=1500&color=39C335&width=600&lines=.%E2%80%8E+%E2%80%8E+%E2%80%8E+%E2%80%8E%E2%80%8E%E2%80%8E+++do+you+think+there's+anything+beyond+the+void%3F;.%E2%80%8E+%E2%80%8E+%E2%80%8E+%E2%80%8E%E2%80%8E%E2%80%8E+++Maybe%2C+I+wonder+if+there's+sunlight+up+there.+.+.)](https://git.io/typing-svg)
 
   
-  [rentry](https://rentry.co/BAR3DFANGS) ‎ 𖹭‎ ‎  [strawpage]()‎‎  ‎  𖹭 ‎  [pronoun.cc](https://pronouns.cc/@BLUE_RIBBON.) ‎‎   𖹭‎ ‎  [atabook]()
+  [rentry](https://rentry.co/BAR3DFANGS) ‎ 𖹭‎ ‎  [strawpage]()‎‎  ‎  𖹭 ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   𖹭‎ ‎  [atabook]()
 
   some links arent here / will be added 
 </p>
