@@ -18,7 +18,7 @@ WORK IN PROGRESS !!
 
 <div align="center">
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Love+Ya+Like+A+Sister&size=25&pause=1500&color=39C335&width=600&lines=.%E2%80%8E+%E2%80%8E+%E2%80%8E+%E2%80%8E%E2%80%8E%E2%80%8E+++do+you+think+there's+anything+beyond+the+void%3F;.%E2%80%8E+%E2%80%8E+%E2%80%8E+%E2%80%8E%E2%80%8E%E2%80%8E+++Maybe%2C+I+wonder+if+there's+sunlight+up+there.+.+.)](https://git.io/typing-svg)
+ interests  : phighting, bt, Pokemon, CoS, rhythm games+ more i dont remember, pls int or tell me some to check out, i dont bite!
 
   
   [rentry](https://rentry.co/BAR3DFANGS) ‎ 𖹭‎ ‎  [strawpage]()‎‎  ‎  𖹭 ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   𖹭‎ ‎  [atabook]()
