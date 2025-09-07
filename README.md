@@ -21,7 +21,7 @@ WORK IN PROGRESS !!
   
 ╰ ᵔ Art by me >u<
   
-  [rentry](https://rentry.co/BAR3DFANGS) ‎ 𖹭‎ ‎  [strawpage]()‎‎  ‎  𖹭 ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   𖹭‎ ‎  [atabook]()
+  [rentry](https://rentry.co/CAREPAD_) ‎ 𖹭‎ ‎  [strawpage]()‎‎  ‎  𖹭 ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   𖹭‎ ‎  [atabook]()
 
   some links arent here yet, sorry! ✫
 </p>
