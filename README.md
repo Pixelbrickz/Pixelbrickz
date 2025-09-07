@@ -1,14 +1,15 @@
 <div align="center">
 
-  <img width="115" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=39C335&label=hopus_!!">
-
-![1000001304](https://github.com/user-attachments/assets/72811f64-9d69-4431-8654-9007c90569b2)
+  <img width="100" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=e1ba56&label=citizens_✫">
 
 
+</p>
 
-  
+<img width="430" height="550" alt="Untitled84_20250906200708" src="https://github.com/user-attachments/assets/d8d21c07-cdea-47e5-9c53-c161aea7b9bb" />
 
-<img width="500" height="500" alt="1000001303" src="https://github.com/user-attachments/assets/ed73bf73-4a50-45c5-ae3b-6880d2d2967b" />
+
+
+
 
 
 
