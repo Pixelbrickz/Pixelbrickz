@@ -19,8 +19,7 @@ WORK IN PROGRESS !!
 
 <div align="center">
   
- interests  : phighting, bt, Pokemon, CoS, rhythm games+ more i dont remember, pls int or tell me some to check out, i dont bite!
-
+╰ ᵔ Art by me >u<
   
   [rentry](https://rentry.co/BAR3DFANGS) ‎ 𖹭‎ ‎  [strawpage]()‎‎  ‎  𖹭 ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   𖹭‎ ‎  [atabook]()
 
