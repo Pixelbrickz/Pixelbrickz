@@ -21,7 +21,7 @@ WORK IN PROGRESS !!
   
 Art by me >u<
   
-  [rentry](https://rentry.co/CAREPAD_) ‎ 𖹭‎ ‎  [strawpage]()‎‎  ‎  𖹭 ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   𖹭‎ ‎  [atabook](https://ccharmz.atabook.org)
+  [rentry](https://rentry.co/CAREPAD_) ‎ 𖹭‎ ‎  [strawpage](https://imsorryimamonster.straw.page)‎‎  ‎  𖹭 ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   𖹭‎ ‎  [atabook](https://ccharmz.atabook.org)
 
   some links arent here yet, sorry! ✫
   
