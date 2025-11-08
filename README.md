@@ -27,8 +27,3 @@ Art by me >u<
   
   [ps im notorious for passing out while playing.. me and my anemic ass]
 </p>
-
-![RobloxScreenShot20250506_173338754](https://github.com/user-attachments/assets/9dd1d8ad-1169-4f43-9e2b-82f58ea249e5)
-
-<img width="600" height="600" alt="Untitled29_20251107155108" src="https://github.com/user-attachments/assets/6be1eaa6-59a0-497f-8593-0fb1d64c4db6" />
-for med
