@@ -1,7 +1,6 @@
 
-
 <div align="center">
-<img width="85" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=6a517e&label=COILS.">                                  
+<img width="60" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=6a517e&label=🔋 ">                                  
 
   ![newtestforprototype](https://github.com/user-attachments/assets/6efab3f6-36db-470b-9829-cd391f05a9bf)
 
@@ -11,15 +10,18 @@
 
 
 
-WORK IN PROGRESS !!
+ $\texttt{\color{#532c68}" What is purpose . . ? "}$ 
 </p>
 
 <div align="center">
-  
-  
-  [rentry](https://rentry.co/CAREPAD_) ‎ 𖹭‎ ‎  [strawpage](https://imsorryimamonster.straw.page)‎‎  ‎  𖹭 ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   𖹭‎ ‎  [atabook](https://ccharmz.atabook.org)
 
-  working so links might be unfinished! ✫
-  
-  [ps im notorious for passing out while playing.. me and my anemic ass]
+  $\texttt{\color{#bf9e98} She/He }$ 
+
+[rentry](https://rentry.co/CAREPAD_) ‎   $\texttt{\color{#9f6e8b}𖹭‎‎}$  [strawpage](https://imsorryimamonster.straw.page)‎‎  ‎  $\texttt{\color{#9f6e8b}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   $\texttt{\color{#9f6e8b}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
+
+  $\texttt{\color{#918ea2} working so links might be unfinished! ✫ }$ 
+
+  $\texttt{\color{#c0dacf} [ps im notorious for passing out while playing.. me and my anemic ass] }$ 
 </p>
+
+ $\texttt{\color{#color here}  }$
