@@ -15,7 +15,7 @@
 
 <div align="center">
 
-  $\texttt{\color{#bf9e98} She/He }$ 
+  $\texttt{\color{#bf9e98} He/She }$ 
 
 [rentry](https://rentry.co/purposeprotocal) ‎   $\texttt{\color{#9f6e8b}𖹭‎‎}$  [strawpage](https://imsorryimamonster.straw.page)‎‎  ‎  $\texttt{\color{#9f6e8b}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   $\texttt{\color{#9f6e8b}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
 
