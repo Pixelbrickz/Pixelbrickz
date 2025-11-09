@@ -16,7 +16,6 @@ WORK IN PROGRESS !!
 
 <div align="center">
   
-pfp : **blandlyboiled** on twitter
   
   [rentry](https://rentry.co/CAREPAD_) ‎ 𖹭‎ ‎  [strawpage](https://imsorryimamonster.straw.page)‎‎  ‎  𖹭 ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   𖹭‎ ‎  [atabook](https://ccharmz.atabook.org)
 
