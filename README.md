@@ -1,6 +1,6 @@
 <div align="center">
 
-  <img width="100" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=6cb88a&label=citizens_✫">
+  <img width="85" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=6cb88a&label=COILS.">
 
 
 </p>
@@ -19,11 +19,11 @@ WORK IN PROGRESS !!
 
 <div align="center">
   
-Art by me >u<
+pfp : **blandlyboiled** on twitter
   
   [rentry](https://rentry.co/CAREPAD_) ‎ 𖹭‎ ‎  [strawpage](https://imsorryimamonster.straw.page)‎‎  ‎  𖹭 ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   𖹭‎ ‎  [atabook](https://ccharmz.atabook.org)
 
-  some links arent here yet, sorry! ✫
+  consistantly working, links maybe not be done. ✫
   
   [ps im notorious for passing out while playing.. me and my anemic ass]
 </p>
