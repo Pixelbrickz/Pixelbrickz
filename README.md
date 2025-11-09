@@ -1,13 +1,11 @@
+
+
 <div align="center">
+<img width="85" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=6a517e&label=COILS.">                                  
 
-  <img width="85" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=6cb88a&label=COILS.">
-
+  ![newtestforprototype](https://github.com/user-attachments/assets/6efab3f6-36db-470b-9829-cd391f05a9bf)
 
 </p>
-
-![newtestforprototype](https://github.com/user-attachments/assets/6efab3f6-36db-470b-9829-cd391f05a9bf)
-
-
 
 
 
