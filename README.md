@@ -17,7 +17,7 @@
 
   $\texttt{\color{#bf9e98} She/He }$ 
 
-[rentry](https://rentry.co/CAREPAD_) ‎   $\texttt{\color{#9f6e8b}𖹭‎‎}$  [strawpage](https://imsorryimamonster.straw.page)‎‎  ‎  $\texttt{\color{#9f6e8b}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   $\texttt{\color{#9f6e8b}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
+[rentry](https://rentry.co/purposeprotocal) ‎   $\texttt{\color{#9f6e8b}𖹭‎‎}$  [strawpage](https://imsorryimamonster.straw.page)‎‎  ‎  $\texttt{\color{#9f6e8b}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   $\texttt{\color{#9f6e8b}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
 
   $\texttt{\color{#918ea2} working so links might be unfinished! ✫ }$ 
 
