@@ -25,7 +25,7 @@
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/8739bbd9-4a62-42ef-854d-f3637520fb9d" />
 
-  $\texttt{\color{#918ea2} -13 dni }$ 
+ 
 
 </p>
 
