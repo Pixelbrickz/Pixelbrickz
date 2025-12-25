@@ -1,12 +1,12 @@
 
 <div align="center">
-<img width="60" alt="wow that alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=E080AD&label=🍰 ">                                  
-
-  ![newtestforprototype](https://github.com/user-attachments/assets/6efab3f6-36db-470b-9829-cd391f05a9bf)
-
+<img width="60" alt="wow that alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=E080AD&label=🍰 ">  
+  
 </p>
 
+![1000001929](https://github.com/user-attachments/assets/66b86355-69bc-4011-b897-7b451d146b8a)
 
+$\texttt{\color{#B96183} placeholder}$ 
 
 
 
@@ -23,9 +23,9 @@
 
   $\texttt{\color{#E080AD} [ps im notorious for passing out while playing.. me and my anemic ass] }$ 
 
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/8739bbd9-4a62-42ef-854d-f3637520fb9d" />
 
- 
+<img width="736" height="65" alt="1000002130" src="https://github.com/user-attachments/assets/5ffcde0b-99a1-4ed1-b318-d833b5cb5826" />
+
 
 </p>
 
