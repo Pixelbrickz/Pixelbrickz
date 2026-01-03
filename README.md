@@ -31,3 +31,4 @@ $\texttt{\color{#B96183} placeholder}$
 
  $\texttt{\color{#color here}  }$
  
+<img width="1191" height="588" alt="Screenshot 2026-01-03 112905" src="https://github.com/user-attachments/assets/bd5094f5-a200-46b2-96d1-0b85a14b5761" />
