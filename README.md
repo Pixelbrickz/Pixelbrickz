@@ -24,7 +24,7 @@ $\texttt{\color{#B96183} placeholder}$
   $\texttt{\color{#E080AD} [ps im notorious for passing out while playing.. me and my anemic ass] }$ 
 
 
-<img width="736" height="65" alt="1000002130" src="https://github.com/user-attachments/assets/5ffcde0b-99a1-4ed1-b318-d833b5cb5826" />
+<img width="690" height="420" alt="image" src="https://github.com/user-attachments/assets/9d6fc2c6-7360-4e19-a61a-22d0ef25c1ee" />
 
 
 </p>
