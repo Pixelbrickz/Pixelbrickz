@@ -1,27 +1,28 @@
 
 <div align="center">
-<img width="60" alt="wow that alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=E080AD&label=🍰 ">  
+<img width="60" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=D36E43&label=🎏 ">  
   
 </p>
 
-![1000001929](https://github.com/user-attachments/assets/66b86355-69bc-4011-b897-7b451d146b8a)
+<img width="400" height="500" alt="1000002268" src="https://github.com/user-attachments/assets/739e01f2-4dd4-4990-bba7-94044047e4cb" />
 
-$\texttt{\color{#B96183} placeholder}$ 
+ 
 
 
 
- $\texttt{\color{#B96183}" Be Becareful . . ! "}$ 
+ $\texttt{\color{#D36E43}" My hands are so cold . . . "}$ 
+ 
 </p>
 
 <div align="center">
 
-  $\texttt{\color{#E9A9A5} He/She }$ 
+  $\texttt{\color{#E99662} She/He }$ 
 
 [rentry](https://rentry.co/purposeprotocal) ‎   $\texttt{\color{#B96183}𖹭‎‎}$  [strawpage](https://imsorryimamonster.straw.page)‎‎  ‎  $\texttt{\color{#B96183}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   $\texttt{\color{#B96183}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
 
   $\texttt{\color{#F0CA84} working so links might be unfinished! ✫ }$ 
 
-  $\texttt{\color{#E080AD} [ps im notorious for passing out while playing.. me and my anemic ass] }$ 
+  $\texttt{\color{#4CAA75} [ps im notorious for passing out while playing.. me and my anemic ass] }$ 
 
 
 live roblox reaction
