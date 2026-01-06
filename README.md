@@ -5,7 +5,7 @@
 
   
 </p>
-<img width="543" height="32" alt="1000002308" src="https://github.com/user-attachments/assets/bbf6cad6-bf25-486a-8e74-b6b367520783" />
+
 
 
 <img width="500" height="617" alt="1000002302" src="https://github.com/user-attachments/assets/9e2b48a8-817f-4926-90aa-9fca3a5719a9" />
@@ -30,7 +30,15 @@
   $\texttt{\color{#4CAA75} [ps im notorious for passing out while playing.. me and my anemic ass] }$ 
 
 
-<img width="593" height="32" alt="1000002308" src="https://github.com/user-attachments/assets/c644e836-af55-469d-b3e8-e0c6bba2cb7c" />
+</p>
+
+
+<div align="center">
+
+
+<img width="150" height="150" alt="1000002310" src="https://github.com/user-attachments/assets/30cba877-3f41-4a56-b413-fc9428f999ff" />
+
+
 
 
 
