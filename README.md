@@ -20,14 +20,11 @@
 
 [rentry](https://rentry.co/purposeprotocal) ‎   $\texttt{\color{#B96183}𖹭‎‎}$  [strawpage](https://imsorryimamonster.straw.page)‎‎  ‎  $\texttt{\color{#B96183}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   $\texttt{\color{#B96183}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
 
-  $\texttt{\color{#F0CA84} working so links might be unfinished! ✫ }$ 
+  $\texttt{\color{#F0CA84} working on links ✫ }$ 
 
   $\texttt{\color{#4CAA75} [ps im notorious for passing out while playing.. me and my anemic ass] }$ 
 
 
-live roblox reaction
-
-<img width="690" height="420" alt="image" src="https://github.com/user-attachments/assets/9d6fc2c6-7360-4e19-a61a-22d0ef25c1ee" />
 
 
 </p>
