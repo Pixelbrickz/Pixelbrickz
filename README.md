@@ -6,8 +6,6 @@
 </p>
 
 
-<img width="400" height="450" alt="1000002622" src="https://github.com/user-attachments/assets/65a0607c-8bab-41e2-978c-9846cc75b7c5" />
-
 
 
  
@@ -16,6 +14,8 @@
 </p>
 
 <div align="center">
+
+
 
   $\texttt{\color{#F0CA84} She/He }$ 
 
