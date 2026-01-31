@@ -1,6 +1,6 @@
 
 <div align="center">
-<img width="60" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=F0CA84&label=🎏 "> 
+<img width="60" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=F0CA84&label=🍰 "> 
 
   
 </p>
@@ -9,13 +9,14 @@
 
 
  
- $\texttt{\color{#F0CA84} ★ }$ 
+ $\texttt{\color{#a15f5f} ★ }$ 
  
 </p>
 
 <div align="center">
 
 <img width="400" height="424" alt="vineshurisling" src="https://github.com/user-attachments/assets/395d2f3a-a890-4c62-804a-3c38cd43f26b" />
+
 $\texttt{\color{#F0CA84} cred- @Holyborsh  }$ 
 
   $\texttt{\color{#F0CA84} She/He }$ 
