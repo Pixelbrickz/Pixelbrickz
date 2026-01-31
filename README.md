@@ -15,7 +15,8 @@
 
 <div align="center">
 
-
+<img width="400" height="424" alt="vineshurisling" src="https://github.com/user-attachments/assets/395d2f3a-a890-4c62-804a-3c38cd43f26b" />
+$\texttt{\color{#F0CA84} cred- @Holyborsh  }$ 
 
   $\texttt{\color{#F0CA84} She/He }$ 
 
@@ -33,7 +34,7 @@
 
 
 
-
+<img width="737" height="243" alt="rred checker git" src="https://github.com/user-attachments/assets/893eb75e-7068-41a4-8469-67a43cac450d" />
 
 
 
