@@ -35,9 +35,9 @@ $\texttt{\color{#F0CA84} cred- @Holyborsh  }$
 
 
 
-<img width="737" height="243" alt="rred checker git" src="https://github.com/user-attachments/assets/893eb75e-7068-41a4-8469-67a43cac450d" />
+<img width="637" height="243" alt="rred checker git" src="https://github.com/user-attachments/assets/893eb75e-7068-41a4-8469-67a43cac450d" />
 
-
+[ $\texttt{\color{#F0CA84} ‎@ENDLESS-DOORS < His Expendable (`▿´)  }$  ✫ $\texttt{\color{#F0CA84}  @SilencedHeart < paws at yu }$ ]
 
 
 </p>
