@@ -39,8 +39,12 @@ $\texttt{\color{#F0CA84} cred- @Holyborsh n' @gumika-seele }$
 
 [ $\texttt{\color{#F0CA84} ‎@ENDLESS-DOORS < His Expendable (`▿´)  }$  ✫ $\texttt{\color{#F0CA84}  @SilencedHeart < paws at yu }$ ]
 
+ 
+ $\texttt{\color{#F0CA84} -13 iwec/dni }$
 
 </p>
 
  $\texttt{\color{#color here}  }$
+
  
+
