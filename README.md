@@ -19,7 +19,6 @@
 
 $\texttt{\color{#F0CA84} cred- @Holyborsh n' @gumika-seele }$ 
 
-  $\texttt{\color{#F0CA84} She/He }$ 
 
 [rentry](https://rentry.co/purposeprotocal) ‎   $\texttt{\color{#F0CA84}𖹭‎‎}$  [strawpage](https://imsorryimamonster.straw.page)‎‎  ‎  $\texttt{\color{#F0CA84}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   $\texttt{\color{#F0CA84}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
 
@@ -37,7 +36,7 @@ $\texttt{\color{#F0CA84} cred- @Holyborsh n' @gumika-seele }$
 
 <img width="637" height="243" alt="rred checker git" src="https://github.com/user-attachments/assets/893eb75e-7068-41a4-8469-67a43cac450d" />
 
-[ $\texttt{\color{#F0CA84} ‎@ENDLESS-DOORS < His Expendable (`▿´)  }$  ✫ $\texttt{\color{#F0CA84}  @SilencedHeart < paws at yu }$ ]
+[ $\texttt{\color{#F0CA84} ‎@DIRECTOR-WIFIES < His parrot !!! (`▿´)  }$  ✫ $\texttt{\color{#F0CA84}  @SilencedHeart < paws at yu }$ ]
 
  
 </p>
