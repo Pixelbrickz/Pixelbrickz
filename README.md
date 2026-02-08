@@ -27,12 +27,12 @@
 
 <div align="center">
 
-<img width="290" height="432" alt="1000002395" src="https://github.com/user-attachments/assets/e7040c2b-4334-4252-9a64-6185ac5fdb95" />
+<img width="260" height="392" alt="1000002395" src="https://github.com/user-attachments/assets/e7040c2b-4334-4252-9a64-6185ac5fdb95" />
 
 
 [rentry](https://rentry.co/purposeprotocal) ‎   $\texttt{\color{#AF512D}𖹭‎‎}$  [strawpage](https://imsorryimamonster.straw.page)‎‎  ‎  $\texttt{\color{#AF512D}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   $\texttt{\color{#AF512D}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
 
-  $\texttt{\color{#9E3E2C} working on links ✫ }$ 
+
 
   $\texttt{\color{#8F242E} [ps im notorious for passing out while playing.. sorry lowk ] }$ 
 
