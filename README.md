@@ -1,7 +1,7 @@
 
 <div align="center">
 
-  <img width="862" height="134" alt="1000002402" src="https://github.com/user-attachments/assets/7c1f8816-4c54-43e0-baaa-4dce68dd877e" />
+
 
 </p>
 
@@ -21,7 +21,7 @@
 
 
  
- $\texttt{\color{#AF512D} ★ }$ 
+ 
  
 </p>
 
@@ -46,7 +46,7 @@
 
 
 
-<img width="862" height="134" alt="1000002406" src="https://github.com/user-attachments/assets/3b68527a-e45f-4a15-b6dc-c4f0bab2c952" />
+
  
 </p>
 
