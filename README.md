@@ -12,7 +12,7 @@
 
 
   
-  <img width="100" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=0000ff&label=Flowers "> 
+  <img width="100" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=3232ff&label=Flowers "> 
 
   
 </p>
