@@ -12,7 +12,7 @@
 
 
   
-  <img width="70" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=BD632D&label=flames "> 
+  <img width="100" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=7983c4&label=Registered "> 
 
   
 </p>
@@ -27,14 +27,14 @@
 
 <div align="center">
 
-<img width="260" height="392" alt="1000002395" src="https://github.com/user-attachments/assets/e7040c2b-4334-4252-9a64-6185ac5fdb95" />
+![Early_2010_Guest-86521976](https://github.com/user-attachments/assets/04436102-fe3f-4456-af0e-9bc50edc4bee)
 
 
-[rentry](https://rentry.co/purposeprotocal) ‎   $\texttt{\color{#AF512D}𖹭‎‎}$  [strawpage](https://imsorryimamonster.straw.page)‎‎  ‎  $\texttt{\color{#AF512D}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   $\texttt{\color{#AF512D}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
+[rentry](https://rentry.co/purposeprotocal) ‎   $\texttt{\color{#a2a9d6}𖹭‎‎}$  [strawpage](https://imsorryimamonster.straw.page)‎‎  ‎  $\texttt{\color{#a2a9d6}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   $\texttt{\color{#a2a9d6}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
 
 
 
-  $\texttt{\color{#8F242E} [ps im notorious for passing out while playing.. sorry lowk ] }$ 
+  $\texttt{\color{#7983c4} [ps im notorious for passing out while playing.. sorry lowk ] }$ 
 
 
 </p>
@@ -42,7 +42,7 @@
 
 <div align="center">
 
-[ $\texttt{\color{#24683F} ‎@DIRECTOR-WIFIES < His parrot !!! (`▿´)  }$  ✫ $\texttt{\color{#792232}  @B-Zuka < paws at yu }$ ]
+[ $\texttt{\color{#a2a9d6} ‎@DIRECTOR-WIFIES < His parrot !!! (`▿´)  }$  ✫ $\texttt{\color{#a2a9d6}  @B-Zuka < paws at yu }$ ]
 
 
 
