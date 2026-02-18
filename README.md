@@ -34,7 +34,6 @@
 
 
 
-  $\texttt{\color{#7983c4} [ps im notorious for passing out while playing.. sorry lowk ] }$ 
 
 
 </p>
