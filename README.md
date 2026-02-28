@@ -12,9 +12,9 @@
 
 
   
-  <img width="100" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=3232ff&label=Flowers "> 
+  <img width="100" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=BE8C4E&label=sheeps "> 
 
-  
+$\texttt{\color{#724937}✦‎‎}$‎ 
 </p>
 
 
@@ -27,9 +27,9 @@
 
 <div align="center">
 
-![Cobalt_Bee](https://github.com/user-attachments/assets/f1d4b1b4-a2e3-4ec4-a664-d40ebef9621c)
+<img width="395" height="320" alt="1000003077" src="https://github.com/user-attachments/assets/2da4d2fd-bd55-4cd5-93b7-b061763336ca" />
 
-[rentry](https://rentry.co/purposeprotocal) ‎   $\texttt{\color{#0000ff}𖹭‎‎}$  [strawpage](https://imsorryimamonster.straw.page)‎‎  ‎  $\texttt{\color{#0000ff}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   $\texttt{\color{#0000ff}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
+[rentry](https://rentry.co/purposeprotocal) ‎   $\texttt{\color{#724937}𖹭‎‎}$  [strawpage](https://imsorryimamonster.straw.page)‎‎  ‎  $\texttt{\color{#724937}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   $\texttt{\color{#724937}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
 
 
 
@@ -40,7 +40,7 @@
 
 <div align="center">
 
-[ $\texttt{\color{#3232ff} ‎@DIRECTOR-WIFIES < His parrot !!! (`▿´)  }$  ✫ $\texttt{\color{#3232ff}  @B-Zuka < paws at yu }$ ]
+[ $\texttt{\color{#BE8C4E} ‎@DIRECTOR-WIFIES < His parrot  (`▿´)  }$  ✦ $\texttt{\color{#BE8C4E}  @B-Zuka < u stink }$ ]
 
 
 
@@ -48,7 +48,7 @@
  
 </p>
 
- $\texttt{\color{#color here}  }$
+ $\texttt{\color{#BE8C4E} ac : @nortsauce 'n @flygutzz }$
 
  
 
