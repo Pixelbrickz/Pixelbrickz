@@ -40,7 +40,7 @@ $\texttt{\color{#724937}✦‎‎}$‎
 
 <div align="center">
 
-[ $\texttt{\color{#BE8C4E} ‎@ENDLESS-DOORS < His parrot  (`▿´)  }$  ✦ $\texttt{\color{#BE8C4E}  @B-Zuka < u stink }$ ]
+[ $\texttt{\color{#BE8C4E} ‎@ENDLESS-DOORS < His expendable  (`▿´)  }$  ✦ $\texttt{\color{#BE8C4E}  @B-Zuka < u stink }$ ]
 
 
 
