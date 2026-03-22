@@ -35,7 +35,7 @@ $\texttt{\color{#724937}✦‎‎}$‎
 
 
 
-</p>
+
 
 
 <div align="center">
@@ -50,5 +50,13 @@ $\texttt{\color{#724937}✦‎‎}$‎
 
  $\texttt{\color{#BE8C4E} ac : @nortsauce 'n @flygutzz }$
 
- 
 
+ <div align="center">
+
+Small about me cause highschool has me too busy to update my socials ahaha,,, 
+
+i am a **MINOR** don't be weird please. Im super nice though unless we're close/friends i might seem really nervous & reserved but i do NOT BITE. 
+
+im the worlds biggest snugglebunny! i love sitting with people & talking when given the chance, if i've sat with you before, im likely to sit with you again! i think ur cool.
+
+</p>
