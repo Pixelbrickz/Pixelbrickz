@@ -59,4 +59,5 @@ Im super nice but unless we're close/friends i might seem really nervous & reser
 
 big big snugglebunny.. i love sitting with people & talking abt stuff, if i've sat with you before, im likely to sit with you again! i think ur cool.
 
+( no i don't remember my ata password who told u that uhmm )
 </p>
