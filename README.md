@@ -55,8 +55,8 @@ $\texttt{\color{#724937}✦‎‎}$‎
 
 Small about me cause highschool has me too busy to update my socials ahaha,,, 
 
-i am a **MINOR** don't be weird please. Im super nice though unless we're close/friends i might seem really nervous & reserved but i do NOT BITE. 
+Im super nice but unless we're close/friends i might seem really nervous & reserved but i don't bite. 
 
-im the worlds biggest snugglebunny! i love sitting with people & talking when given the chance, if i've sat with you before, im likely to sit with you again! i think ur cool.
+big big snugglebunny.. i love sitting with people & talking abt stuff, if i've sat with you before, im likely to sit with you again! i think ur cool.
 
 </p>
