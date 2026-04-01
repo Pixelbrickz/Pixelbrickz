@@ -48,7 +48,7 @@ $\texttt{\color{#724937}✦‎‎}$‎
  
 </p>
 
- $\texttt{\color{#BE8C4E} ac : me }$
+ $\texttt{\color{#BE8C4E} This is a wip btw }$
 
 
  <div align="center">
