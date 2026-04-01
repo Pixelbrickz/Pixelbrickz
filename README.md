@@ -27,7 +27,7 @@ $\texttt{\color{#724937}✦‎‎}$‎
 
 <div align="center">
 
-<img width="683" height="501" alt="1000003392" src="https://github.com/user-attachments/assets/0c224ffa-b9a6-48ad-8122-7a25e85e0d0f" />
+<img width="500" height="401" alt="1000003392" src="https://github.com/user-attachments/assets/0c224ffa-b9a6-48ad-8122-7a25e85e0d0f" />
 
 [rentry](https://rentry.co/purposeprotocal) ‎   $\texttt{\color{#724937}𖹭‎‎}$  [strawpage](https://imsorryimamonster.straw.page)‎‎  ‎  $\texttt{\color{#724937}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   $\texttt{\color{#724937}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
 
