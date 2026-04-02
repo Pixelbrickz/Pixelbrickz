@@ -61,3 +61,8 @@ big big snugglebunny.. i love sitting with people & talking abt stuff, if i've s
 
 ( no i don't remember my ata password who told u that uhmm )
 </p>
+
+
+<img width="182" height="40" alt="Screenshot 2026-04-02 191135" src="https://github.com/user-attachments/assets/2bc1362a-f74b-448c-af69-f419275527b0" />
+
+if you fake disabilities for attention dni dni dni dni your not cute.
