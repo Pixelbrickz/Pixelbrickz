@@ -12,7 +12,7 @@
 
 
   
-  <img width="100" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=BE8C4E&label=EXR-P "> 
+  <img width="90" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=BE8C4E&label=EXR-P "> 
 
 $\texttt{\color{#724937}✦‎‎}$‎ 
 </p>
@@ -29,7 +29,7 @@ $\texttt{\color{#724937}✦‎‎}$‎
 
 <img width="500" height="401" alt="1000003392" src="https://github.com/user-attachments/assets/0c224ffa-b9a6-48ad-8122-7a25e85e0d0f" />
 
-[rentry](https://rentry.co/purposeprotocal) ‎   $\texttt{\color{#724937}𖹭‎‎}$  [strawpage](https://imsorryimamonster.straw.page)‎‎  ‎  $\texttt{\color{#724937}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   $\texttt{\color{#724937}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
+[rentry](https://rentry.co/purposeprotocal)‎‎  ‎  $\texttt{\color{#724937}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@EXR-P) ‎‎   $\texttt{\color{#724937}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
 
 
 
@@ -59,10 +59,9 @@ Im super nice but unless we're close/friends i might seem really nervous & reser
 
 big big snugglebunny.. i love sitting with people & talking abt stuff, if i've sat with you before, im likely to sit with you again! i think ur cool.
 
-( no i don't remember my ata password who told u that uhmm )
 </p>
 
 
 <img width="182" height="40" alt="Screenshot 2026-04-02 191135" src="https://github.com/user-attachments/assets/2bc1362a-f74b-448c-af69-f419275527b0" />
 
-if you fake disabilities for attention dni dni dni dni your not cute.
+if you fake disabilities for **ANY REASON.** dni dni dni dni your not cute.
