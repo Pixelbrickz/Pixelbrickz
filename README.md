@@ -12,7 +12,7 @@
 
 
   
-  <img width="90" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=BE8C4E&label=EXR-P "> 
+  <img width="90" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=BE8C4E&label=Click click! "> 
 
 $\texttt{\color{#724937}✦‎‎}$‎ 
 </p>
