@@ -58,7 +58,7 @@ Im super nice but unless we're close/friends i might seem really nervous & reser
 
 big big snugglebunny.. i love sitting with people & talking abt stuff, if i've sat with you before, im likely to sit with you again! i think ur cool.
 
-***can roblox devs stop being weird oh my god this is the THIRD game this week. i don't support pressure, doomed by fate nor grace.***
+***can roblox devs stop being weird oh my god this is the SECOND game this week. i don't support pressure, nor grace.***
 
 </p>
 
