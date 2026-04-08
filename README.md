@@ -27,7 +27,6 @@ $\texttt{\color{#724937}✦‎‎}$‎
 
 <div align="center">
 
-<img width="500" height="401" alt="1000003392" src="https://github.com/user-attachments/assets/0c224ffa-b9a6-48ad-8122-7a25e85e0d0f" />
 
 [rentry](https://rentry.co/purposeprotocal)‎‎  ‎  $\texttt{\color{#724937}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@QUICK-FEET) ‎‎   $\texttt{\color{#724937}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
 
@@ -58,6 +57,8 @@ Small about me cause highschool has me too busy to update my socials ahaha,,,
 Im super nice but unless we're close/friends i might seem really nervous & reserved but i don't bite. 
 
 big big snugglebunny.. i love sitting with people & talking abt stuff, if i've sat with you before, im likely to sit with you again! i think ur cool.
+
+***can roblox devs stop being weird oh my god this is the THIRD game this week. i don't support pressure, doomed by fate nor grace.***
 
 </p>
 
