@@ -29,7 +29,7 @@ $\texttt{\color{#724937}✦‎‎}$‎
 
 <img width="500" height="401" alt="1000003392" src="https://github.com/user-attachments/assets/0c224ffa-b9a6-48ad-8122-7a25e85e0d0f" />
 
-[rentry](https://rentry.co/purposeprotocal)‎‎  ‎  $\texttt{\color{#724937}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@EXR-P) ‎‎   $\texttt{\color{#724937}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
+[rentry](https://rentry.co/purposeprotocal)‎‎  ‎  $\texttt{\color{#724937}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@QUICK-FEET) ‎‎   $\texttt{\color{#724937}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
 
 
 
@@ -40,7 +40,7 @@ $\texttt{\color{#724937}✦‎‎}$‎
 
 <div align="center">
 
-[ $\texttt{\color{#BE8C4E} ‎@ENDLESS-DOORS < HIS EXPENDABLE !!! }$  ✦ $\texttt{\color{#BE8C4E}  @B-Zuka < u stink/j }$ ]
+[ $\texttt{\color{#BE8C4E} ‎@ENDLESS-DOORS < HI TOBI ♡ !!!  }$  ✦ $\texttt{\color{#BE8C4E}  @B-Zuka < u stink/j }$ ]
 
 
 
