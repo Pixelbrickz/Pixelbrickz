@@ -39,7 +39,7 @@ $\texttt{\color{#724937}✦‎‎}$‎
 
 <div align="center">
 
-[ $\texttt{\color{#BE8C4E} ‎@ENDLESS-DOORS < HI TOBI ♡ !!!  }$  ✦ $\texttt{\color{#BE8C4E}  @B-Zuka < u stink/j }$ ]
+[ $\texttt{\color{#BE8C4E} ‎@ENDLESS-DOORS < MY TOURIST ♡ !!!  }$  ✦ $\texttt{\color{#BE8C4E}  @B-Zuka < u stink/j }$ ]
 
 
 
