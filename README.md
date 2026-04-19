@@ -31,7 +31,7 @@ $\texttt{\color{#539dc2} ‎  ‎  ‎ ‎  ‎  ‎   -14 iwc unless we're alr 
    TEXT TEXT TEXT
 
 
- Art drawn by me : )    ‎  ‎  ‎  ‎  ‎ <img align="left" width="10%" src="https://github.com/user-attachments/assets/a96263c0-2c2e-42b4-b274-87d5e7e02921" />
+‎  ‎  ‎  ‎  ‎ <img align="left" width="10%" src="https://github.com/user-attachments/assets/a96263c0-2c2e-42b4-b274-87d5e7e02921" /> Art drawn by me : )    ‎  ‎  ‎  ‎  ‎
 
 
 
