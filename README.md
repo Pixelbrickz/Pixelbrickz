@@ -38,7 +38,7 @@ $\texttt{\color{#91c9bf}  ‎  ‎  ‎  ‎  Art drawn by me : )    ‎  ‎}$ 
  
  <div align="center">
 
-[rentry](https://rentry.co/purposeprotocal)‎‎  ‎  $\texttt{\color{#3b7694}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@QUICK-FEET) ‎‎   $\texttt{\color{#3b7694}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
+[rentry](https://rentry.co/purposeprotocal)‎‎  ‎  $\texttt{\color{#3b7694}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@QUICK-FEET) ‎‎   $\texttt{\color{#3b7694}𖹭‎‎}$‎ ‎  [atabook](https://thieves-rest.atabook.org/)  
 
 [ $\texttt{\color{#539dc2} ‎@ENDLESS-DOORS < MY TOURIST ♡ !!!  }$  ✦ $\texttt{\color{#539dc2}  @B-Zuka < hey so... 🍺/ref }$ ]
 
