@@ -31,14 +31,14 @@ $\texttt{\color{#539dc2} ‎  ‎  ‎ ‎  ‎  ‎   -14 iwc unless we're alr 
    TEXT TEXT TEXT
 
 
-‎  ‎  ‎  ‎  ‎  Art drawn by me : )    ‎  ‎  ‎  ‎  ‎
+$\texttt{\color{#91c9bf}  ‎  ‎  ‎  ‎  Art drawn by me : )    ‎  ‎}$  ‎  ‎  ‎
 
 
 
  
  <div align="center">
 
-<img align="left" width="10%" src="https://github.com/user-attachments/assets/a96263c0-2c2e-42b4-b274-87d5e7e02921" />[rentry](https://rentry.co/purposeprotocal)‎‎  ‎  $\texttt{\color{#3b7694}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@QUICK-FEET) ‎‎   $\texttt{\color{#3b7694}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
+[rentry](https://rentry.co/purposeprotocal)‎‎  ‎  $\texttt{\color{#3b7694}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@QUICK-FEET) ‎‎   $\texttt{\color{#3b7694}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
 
 [ $\texttt{\color{#539dc2} ‎@ENDLESS-DOORS < MY TOURIST ♡ !!!  }$  ✦ $\texttt{\color{#539dc2}  @B-Zuka < hey so... 🍺/ref }$ ]
 
