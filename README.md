@@ -10,17 +10,17 @@
 
 <div align="center">
 
-$\texttt{\color{#539dc2} Pixel}$ ‎  <img src="https://i.ibb.co/Twk2X78/IMG-7960.gif">  
-  ‎  ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎     ‎  ‎ $\texttt{\color{#60bdb2} or sling}$ <img src="https://i.ibb.co/rvKX2w5/IMG-7763.png">  
+ $\texttt{\color{#539dc2} Pixel}$ ‎  <img src="https://i.ibb.co/Twk2X78/IMG-7960.gif">  
+  ‎  ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎     ‎  ‎ $\texttt{\color{#60aabd} or sling}$ <img src="https://i.ibb.co/rvKX2w5/IMG-7763.png">  
 <div align="left">
-  ‎  ‎ ‎  ‎  ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎    ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎   ‎  ‎  ‎  ‎  ‎  ‎   ‎   ‎  ‎  ‎   ‎   ‎  ‎  ‎  ‎  ‎ ‎   ‎ ‎   ‎  ‎  ‎  ‎   ‎ ‎  ‎  ‎  ‎   ‎‎  ‎‎ ⁽⁽ he / she ✦ partially disabled
- ‎  ‎  ‎  ‎  ‎  ‎ 
 
-  cud comf , c+h / int always!
+ ‎  ‎  ‎  ‎  ‎  ‎ $\texttt{\color{#91c9bf}  ‎  ‎   ‎    ‎    ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎   ‎  ‎  ‎  ‎  ‎  ‎   ‎   ‎  ‎  ‎   ‎   ‎  ‎  ‎  ‎  ‎ ‎   ‎ ‎   ‎  ‎  ‎  ‎   ‎ ‎  ‎  ‎  ‎   ‎‎  ‎‎ ⁽⁽ he / she ✦ partially disabled}$
+
+$\texttt{\color{#3b7694}   cud comf , c+h / int always!}$
 
  
 
- ‎  ‎  ‎ ‎  ‎  ‎   -14 iwc unless we're alr friends
+$\texttt{\color{#539dc2} ‎  ‎  ‎ ‎  ‎  ‎   -14 iwc unless we're alr friends}$
 
  ‎  ‎  ‎  ‎  ‎  ‎ THIS IS A WIP SORRYY
 
@@ -31,7 +31,7 @@ $\texttt{\color{#539dc2} Pixel}$ ‎  <img src="https://i.ibb.co/Twk2X78/IMG-796
    TEXT TEXT TEXT
 
 
- TEXT TEXT TEXT<img align="left" width="10%" src="https://github.com/user-attachments/assets/ebb6c4bf-3e29-47e7-be7c-93795a64c8ea" />
+ TEXT TEXT TEXT<img align="left" width="10%" src="https://github.com/user-attachments/assets/a96263c0-2c2e-42b4-b274-87d5e7e02921" />
 
 
 
