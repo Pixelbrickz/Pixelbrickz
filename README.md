@@ -5,15 +5,15 @@
 
  ‎ 
 
-  ‎ ‎  ‎  ‎    ‎  ‎  ‎  <img width="115" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=BE8C4E&label=Customers"> 
+  ‎ ‎  ‎  ‎    ‎  ‎  ‎  <img width="115" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=3b7694&label=Customers!"> 
 
 
 <div align="center">
 
-$\texttt{\color{#BE8C4E} Pixel}$ ‎  <img src="https://i.ibb.co/Twk2X78/IMG-7960.gif">  
-  ‎  ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎     ‎  ‎ $\texttt{\color{#BE8C4E} or sling}$ <img src="https://i.ibb.co/rvKX2w5/IMG-7763.png">  
+$\texttt{\color{#539dc2} Pixel}$ ‎  <img src="https://i.ibb.co/Twk2X78/IMG-7960.gif">  
+  ‎  ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎     ‎  ‎ $\texttt{\color{#60bdb2} or sling}$ <img src="https://i.ibb.co/rvKX2w5/IMG-7763.png">  
 <div align="left">
-  ‎  ‎ ‎  ‎  ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎    ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎   ‎  ‎  ‎  ‎  ‎  ‎   ‎   ‎  ‎  ‎   ‎   ‎  ‎  ‎  ‎  ‎ ‎   ‎ ‎   ‎  ‎  ‎  ‎  ‎   ‎   ‎ ‎  ‎  ‎  ‎   ‎‎  ‎‎  he / she ✦ catself
+  ‎  ‎ ‎  ‎  ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎    ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎   ‎  ‎  ‎  ‎  ‎  ‎   ‎   ‎  ‎  ‎   ‎   ‎  ‎  ‎  ‎  ‎ ‎   ‎ ‎   ‎  ‎  ‎  ‎   ‎ ‎  ‎  ‎  ‎   ‎‎  ‎‎ ⁽⁽ he / she ✦ partially disabled
  ‎  ‎  ‎  ‎  ‎  ‎ 
 
   cud comf , c+h / int always!
@@ -31,12 +31,14 @@ $\texttt{\color{#BE8C4E} Pixel}$ ‎  <img src="https://i.ibb.co/Twk2X78/IMG-796
    TEXT TEXT TEXT
 
 
- TEXT TEXT TEXT
+ TEXT TEXT TEXT<img align="left" width="10%" src="https://github.com/user-attachments/assets/ebb6c4bf-3e29-47e7-be7c-93795a64c8ea" />
+
+
 
  
  <div align="center">
 
-[rentry](https://rentry.co/purposeprotocal)‎‎  ‎  $\texttt{\color{#724937}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@QUICK-FEET) ‎‎   $\texttt{\color{#724937}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
+[rentry](https://rentry.co/purposeprotocal)‎‎  ‎  $\texttt{\color{#3b7694}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@QUICK-FEET) ‎‎   $\texttt{\color{#3b7694}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
 
-[ $\texttt{\color{#BE8C4E} ‎@ENDLESS-DOORS < MY TOURIST ♡ !!!  }$  ✦ $\texttt{\color{#BE8C4E}  @B-Zuka < hey so... 🍺/ref }$ ]
+[ $\texttt{\color{#539dc2} ‎@ENDLESS-DOORS < MY TOURIST ♡ !!!  }$  ✦ $\texttt{\color{#539dc2}  @B-Zuka < hey so... 🍺/ref }$ ]
 
