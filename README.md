@@ -1,68 +1,9 @@
 
-<div align="center">
+<img align="left" width="259" height="373" alt="slingshot readme icon" src="https://github.com/user-attachments/assets/8bdf4d35-3cf8-4b7e-977f-e53c627af5d6" />
+
+‎‎‎$\texttt{\color{#724937} BIG BIG WIP HII!‎‎}$‎ 
+
+ <div align="right">
 
 
-
-</p>
-
-<div align="center">
-
-  
-  
-
-
-  
-  <img width="90" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=BE8C4E&label=Click-click!"> 
-
-$\texttt{\color{#724937}✦‎‎}$‎ 
-</p>
-
-
-
-
- 
- 
- 
-</p>
-
-<div align="center">
-
-
-[rentry](https://rentry.co/purposeprotocal)‎‎  ‎  $\texttt{\color{#724937}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@QUICK-FEET) ‎‎   $\texttt{\color{#724937}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
-
-
-
-
-
-
-
-
-<div align="center">
-
-[ $\texttt{\color{#BE8C4E} ‎@ENDLESS-DOORS < MY TOURIST ♡ !!!  }$  ✦ $\texttt{\color{#BE8C4E}  @B-Zuka < u stink/j }$ ]
-
-
-
-
- 
-</p>
-
- $\texttt{\color{#BE8C4E} This is a wip btw }$
-
-
- <div align="center">
-
-Small about me cause highschool has me too busy to update my socials ahaha,,, 
-
-Im super nice but unless we're close/friends i might seem really nervous & reserved but i don't bite. 
-
-big big snugglebunny.. i love sitting with people & talking abt stuff, if i've sat with you before, im likely to sit with you again! i think ur cool.
-
-***can roblox devs stop being weird oh my god this is the SECOND game this week. i don't support pressure, nor grace.***
-
-</p>
-
-
-<img width="182" height="40" alt="Screenshot 2026-04-02 191135" src="https://github.com/user-attachments/assets/2bc1362a-f74b-448c-af69-f419275527b0" />
-
-if you fake disabilities for **ANY REASON.** dni dni dni dni your not cute.
+ </p>
