@@ -24,11 +24,11 @@ $\texttt{\color{#539dc2} ‎  ‎  ‎ ‎  ‎  ‎   -14 iwc unless we're alr 
 
  ‎  ‎  ‎  ‎  ‎  ‎ THIS IS A WIP SORRYY
 
-  TEXT TEXT TEXT
+  ‎   ‎    ‎   No dni / i block freely
 
  
 
-   TEXT TEXT TEXT
+   Big snugglebunny.. i don't bite come say hi !!
 
 
 $\texttt{\color{#91c9bf}  ‎  ‎  ‎  ‎  Art drawn by me : )    ‎  ‎}$  ‎  ‎  ‎
@@ -40,5 +40,5 @@ $\texttt{\color{#91c9bf}  ‎  ‎  ‎  ‎  Art drawn by me : )    ‎  ‎}$ 
 
 [rentry](https://rentry.co/purposeprotocal)‎‎  ‎  $\texttt{\color{#3b7694}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@QUICK-FEET) ‎‎   $\texttt{\color{#3b7694}𖹭‎‎}$‎ ‎  [atabook](https://thieves-rest.atabook.org/)  
 
-[ $\texttt{\color{#539dc2} ‎@ENDLESS-DOORS < MY TOURIST ♡ !!!  }$  ✦ $\texttt{\color{#539dc2}  @B-Zuka < hey so... 🍺/ref }$ ]
+[ $\texttt{\color{#3b7694} ‎@ENDLESS-DOORS < MY TOURIST !!! ♡ }$  ✦ $\texttt{\color{#3b7694}  @B-Zuka < hey so... 🍺/ref }$ ]
 
