@@ -28,7 +28,7 @@ $\texttt{\color{#88ad31} ‎  ‎  ‎ ‎  ‎  ‎   -14 iwc unless we're alr 
 
  
 
-   snugglebunny,, i don't bite come say hi ok?
+   If u wanna be friends check my rentry pls !!
 
 
 $\texttt{\color{#bd7013}  ‎  ‎  ‎  ‎  Art drawn by me : )    ‎  ‎}$  ‎  ‎  ‎
