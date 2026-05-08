@@ -38,7 +38,7 @@ $\texttt{\color{#bd7013}  ‎  ‎  ‎  ‎  Art drawn by me : )    ‎  ‎}$ 
  
  <div align="center">
 
-[rentry](https://rentry.co/purposeprotocal)‎‎  ‎  $\texttt{\color{#ab3d0e}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@QUICK-FEET) ‎‎   $\texttt{\color{#ab3d0e}𖹭‎‎}$‎ ‎  [atabook](https://thieves-rest.atabook.org/)  
+[rentry](https://rentry.co/fighting-on-the-heights)‎‎  ‎  $\texttt{\color{#ab3d0e}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@QUICK-FEET) ‎‎   $\texttt{\color{#ab3d0e}𖹭‎‎}$‎ ‎  [atabook](https://thieves-rest.atabook.org/)  
 
 [ $\texttt{\color{#ab3d0e} ‎@ENDLESS-DOORS}$ $\texttt{\color{#bd7013} , @The-Great-Flocci < BEST OOMFS !! ♡ }$ ]
 
