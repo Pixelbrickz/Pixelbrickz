@@ -7,7 +7,7 @@
 
 
 
- ‎ $\texttt{\color{#cf88af} Sword / pixel or wut u know me az}$
+ ‎ $\texttt{\color{#cf88af} Sword / pixel or whtevr u know me az}$
  
 $\texttt{\color{#d39ec6} c*h ,, int enc }$
 
