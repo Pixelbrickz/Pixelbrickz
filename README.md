@@ -7,7 +7,9 @@
 
 
 
- ‎ 
+ ‎ $\texttt{\color{#cf88af} Sword / pixel or wut u know me as}$
+
+ 
 $\texttt{\color{#95b846} ⁽⁽ he / she - partially disabled}$
 $\texttt{\color{#95b846} ✦  ‎  read socials for more + credits}$
 
