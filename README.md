@@ -22,5 +22,6 @@ $\texttt{\color{#95b846} ✦  ‎  read socials for more + creditz}$
 
 [rentry](https://rentry.co/fighting-on-the-heights)‎‎  ‎  $\texttt{\color{#cf96bb}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@QUICK-FEET) ‎‎   $\texttt{\color{#394bc9}𖹭‎‎}$‎ ‎  [atabook](https://thieves-rest.atabook.org/)  
 
-[ $\texttt{\color{#495bca} ‎@ENDLESS-DOORS}$ $\texttt{\color{#283ba3} , @The-Great-Flocci < Best friends !! }$ ]
+ 
+$\texttt{\color{#95b846} [ }$ $\texttt{\color{#495bca} ‎@ENDLESS-DOORS}$ $\texttt{\color{#283ba3} , @Unnamed-Prussian-Officer < Best friends !! }$ $\texttt{\color{#95b846} ] }$
 
