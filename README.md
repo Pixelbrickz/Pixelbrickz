@@ -8,6 +8,8 @@
 
 
  ‎ $\texttt{\color{#cf88af} Sword / pixel or wut u know me az}$
+ 
+$\texttt{\color{#d39ec6} c*h ,, int enc }$
 
  
 $\texttt{\color{#95b846} ⁽⁽ he / she - partially disabled}$
