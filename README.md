@@ -2,18 +2,17 @@
   
   ‎ ‎  ‎  ‎    ‎  ‎  ‎  <img width="74" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=be5b90&label=🪽"> 
 
-<img align="center" width="50%" alt="git icon" src="https://files.catbox.moe/xhjuyj.png" />
+WIP 
 
 
 
-
- ‎ $\texttt{\color{#cf88af} Sword / pixel or whtevr u know me az}$
+ ‎ $\texttt{\color{#cf88af} Sword / pixel or what u know me as}$
  
 $\texttt{\color{#d39ec6} c*h ,, int enc }$
 
  
 $\texttt{\color{#95b846} ⁽⁽ he / she - partially disabled}$
-$\texttt{\color{#95b846} ✦  ‎  read socials for more + creditz}$
+$\texttt{\color{#95b846} ✦  ‎  read socials for more}$
 
 
  ‎
