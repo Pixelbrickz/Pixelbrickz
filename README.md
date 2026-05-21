@@ -12,8 +12,8 @@
    
 $\texttt{\color{#c8b96a}  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎"Oh, 愛してる oh, 愛してる"}$
 
-꒰ 𐂯 ꒱
-  
+
+ ꒰ 𐂯 ꒱
  
 $\texttt{\color{#d39ec6} c*h ,, int enc, ok? }$
 
@@ -27,5 +27,5 @@ $\texttt{\color{#95b846} ✦  ‎  read socials for more}$
 
 
  
-$\texttt{\color{#95b846} [ }$ $\texttt{\color{#4a799a} ‎@ENDLESS-DOORS << noob to my guest}$ $\texttt{\color{#36598a} , @Unnamed-Prussian-Officer < my Best friends !! }$ $\texttt{\color{#95b846} ] }$
+$\texttt{\color{#95b846} [ }$  [Tobi](https://Github.com/thehoteldoors)‎‎ $\texttt{\color{#4a799a} ,, noob to my guest}$ $\texttt{\color{#95b846} n }$ [Ivary !](https://Github.com/Unnamed-Prussian-Officer) $\texttt{\color{#36598a} ,, my Best friends !! }$ $\texttt{\color{#95b846} ] }$
 
