@@ -2,7 +2,8 @@
   
   ‎ ‎  ‎  ‎    ‎  ‎  ‎  <img width="74" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=be5b90&label=🪽"> 
 
-WIP 
+ <img align="center" width="40%" src="https://github.com/user-attachments/assets/bb627152-84a5-4924-98d6-081c5f45d434" />
+
 
 
 
