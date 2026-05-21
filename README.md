@@ -1,19 +1,21 @@
  <div align="center">
+
+wip btw 
   
-  ‎ ‎  ‎  ‎    ‎  ‎  ‎  <img width="74" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=be5b90&label=🪽"> 
+  ‎ ‎  ‎  ‎    ‎  ‎  ‎  <img width="74" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=342820&label=🪽"> 
 
- <img align="center" width="40%" src="https://github.com/user-attachments/assets/bb627152-84a5-4924-98d6-081c5f45d434" />
-
-
+ <img align="center" width="23%" src="https://github.com/user-attachments/assets/afb73625-50e5-4ec5-82e6-0145fe099593" />
 
 
- ‎ $\texttt{\color{#cf88af} Sword / pixel or what u know me as}$
+
+
+ ‎ $\texttt{\color{#9A3111} Sword / pixel or what u know me as}$
  
-$\texttt{\color{#d39ec6} c*h ,, int enc }$
+$\texttt{\color{#B16637} c*h ,, int enc }$
 
  
-$\texttt{\color{#95b846} ⁽⁽ he / she - partially disabled}$
-$\texttt{\color{#95b846} ✦  ‎  read socials for more}$
+$\texttt{\color{#C19D31} ⁽⁽ he / she - partially disabled}$
+$\texttt{\color{#C19D31} ✦  ‎  read socials for more}$
 
 
  ‎
@@ -22,7 +24,7 @@ $\texttt{\color{#95b846} ✦  ‎  read socials for more}$
 
  
 
-[rentry](https://rentry.co/fighting-on-the-heights)‎‎  ‎  $\texttt{\color{#cf96bb}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@QUICK-FEET) ‎‎   $\texttt{\color{#394bc9}𖹭‎‎}$‎ ‎  [atabook](https://thieves-rest.atabook.org/)  
+[rentry](https://rentry.co/fighting-on-the-heights)‎‎  ‎  $\texttt{\color{#762404}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@QUICK-FEET) ‎‎   $\texttt{\color{#762404}𖹭‎‎}$‎ ‎  [atabook](https://thieves-rest.atabook.org/)  
 
  
 $\texttt{\color{#95b846} [ }$ $\texttt{\color{#495bca} ‎@ENDLESS-DOORS}$ $\texttt{\color{#283ba3} , @Unnamed-Prussian-Officer < Best friends !! }$ $\texttt{\color{#95b846} ] }$
