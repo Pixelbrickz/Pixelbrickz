@@ -34,7 +34,7 @@ $\texttt{\color{#95b846} ‎‎  ‎‎⁽⁽ he / she ✦ Genderfluid }$
 
   ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎   ‎  ‎  ‎ ᧔♡᧓
 
- ‎  ‎  ‎  ‎  ‎  ‎ $\texttt{\color{#679641} c*h ,, int enc, say hi! }$ 
+ ‎  ‎  ‎  ‎  ‎  ‎ $\texttt{\color{#679641} c*h ,, int enc, i wont bite }$ 
 
   ‎  ‎  ‎  ‎    ‎  ‎ $\texttt{\color{#b6874f}︶︶ ‎ socials for more ໒꒱ }$ $\texttt{\color{#c8b96a}+ I block freely }$
   ‎  ‎  ‎  ‎  
