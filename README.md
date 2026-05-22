@@ -20,7 +20,9 @@
 
  
  ‎  ‎  ‎  ‎  ‎  ‎   ‎      ‎  ‎  ‎  ‎ 
-  ‎   ‎    ‎    
+  ‎   ‎   
+   ‎ ‎ ‎  ‎    ‎    
+
  $\texttt{\color{#ab3d0e}        Sword}$ ‎ ꒱꒱　　
   ‎  ‎  ‎ ‎ ‎  ‎ ‎  ‎ 
   ‎      
@@ -30,23 +32,15 @@
 $\texttt{\color{#95b846} ‎‎  ‎‎⁽⁽ he / she ✦ Genderfluid }$ 
 
 
+  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎   ‎  ‎  ‎ ᧔♡᧓
 
  ‎  ‎  ‎  ‎  ‎  ‎ $\texttt{\color{#679641} c*h ,, int enc, say hi! }$ 
 
-
+  ‎  ‎  ‎  ‎    ‎  ‎ $\texttt{\color{#b6874f}︶︶ ‎ socials for more ໒꒱ }$ $\texttt{\color{#c8b96a}+ I block freely }$
   ‎  ‎  ‎  ‎  
-  ‎  ‎  ‎  ‎    ‎  ‎ $\texttt{\color{#b6874f}︶︶ ‎ socials for more ໒꒱ }$ $\texttt{\color{#c8b96a} + I block freely }$
 
-
-
-
- 
-
-
-  ‎ ‎ ‎ ‎ ‎  ‎    [extra / rentry](https://rentry.co/fighting-on-the-heights)‎‎    ‎  $\texttt{\color{#893811}𖹭‎‎}$ ‎  [prns](https://pronouns.cc/@OUT-OF-TIME) ‎‎     $\texttt{\color{#c8b96a}𖹭‎‎}$‎   ‎  [sign for cookie](https://thieves-rest.atabook.org/)    
-
-  
-   ‎  ‎  ‎    ‎ ‎  ‎    ‎ 
+ ‎ ‎ ‎  ‎       ‎ ‎ ‎  ‎    
+   ‎  ‎  ‎    ‎ ‎  ‎     ‎ ‎ ‎ ‎ ‎  ‎    [extra / rentry](https://rentry.co/fighting-on-the-heights)‎‎    ‎  $\texttt{\color{#bd7013}𖹭‎‎}$ ‎  [prns](https://pronouns.cc/@OUT-OF-TIME) ‎‎     $\texttt{\color{#bd7013}𖹭‎‎}$‎   ‎  [sign for cookie](https://thieves-rest.atabook.org/) ‎ 
 
 
  ‎ ‎ ‎ ‎ $\texttt{\color{#95b846} [ }$  [Tobi](https://Github.com/thehoteldoors)‎‎ $\texttt{\color{#4a799a} ,, noob to my guest}$ $\texttt{\color{#95b846} n }$ [Ivary !](https://Github.com/Unnamed-Prussian-Officer) $\texttt{\color{#36598a} ,, my Best friends !! }$ $\texttt{\color{#95b846} ] }$
@@ -56,7 +50,5 @@ $\texttt{\color{#95b846} ‎‎  ‎‎⁽⁽ he / she ✦ Genderfluid }$
 
  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ 
 $\texttt{\color{#c8b96a}  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎"Oh, 愛してる oh, 愛してる."}$
-
-
-
-  ‎  ‎    ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ $\texttt{\color{#bd7013}  ‎  ‎  ‎  ‎ All Art drawn by me : )    ‎  ‎}$
+ ‎ ‎ ‎  ‎    
+  ‎  ‎    ‎ ‎ ‎   ‎ ‎ ‎  ‎   ‎ ‎ ‎  ‎     ‎ ‎ ‎  ‎     ‎ ‎ ‎  ‎       ‎ ‎ ‎ ‎ ‎‎‎ $\texttt{\color{#bd7013}  ‎  ‎  ‎  ‎ All Art drawn by me : )    ‎  ‎}$
