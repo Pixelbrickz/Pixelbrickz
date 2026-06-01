@@ -36,7 +36,7 @@ $\texttt{\color{#95b846} ‎‎  ‎‎⁽⁽ he / she ✦ Genderfluid }$
 
  ‎  ‎  ‎  ‎  ‎  ‎ $\texttt{\color{#679641} c*h ,, int enc, i wont bite }$ 
 
-  ‎  ‎  ‎  ‎    ‎  ‎ $\texttt{\color{#b6874f}︶︶ ‎ socials for more ໒꒱ }$ $\texttt{\color{#c8b96a}+ I block freely }$
+  ‎  ‎  ‎  ‎    ‎  ‎ $\texttt{\color{#b6874f}︶︶ ‎ 13 n' under iwc ໒꒱ }$ $\texttt{\color{#c8b96a}+ I block freely }$
   ‎  ‎  ‎  ‎  
 
  ‎ ‎ ‎  ‎       ‎ ‎ ‎  ‎    
