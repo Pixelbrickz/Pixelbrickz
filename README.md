@@ -40,7 +40,7 @@ $\texttt{\color{#95b846} ‎‎  ‎‎⁽⁽ he / she ✦ Genderfluid }$
   ‎  ‎  ‎  ‎  
 
  ‎ ‎ ‎  ‎       ‎ ‎ ‎  ‎    
-   ‎  ‎  ‎    ‎ ‎  ‎     ‎ ‎ ‎ ‎ ‎  ‎    [extra / rentry](https://rentry.co/fighting-on-the-heights)‎‎    ‎  $\texttt{\color{#bd7013}𖹭‎‎}$ ‎  [prns](https://prono uns.cc/@OUT-OF-TIME) ‎‎     $\texttt{\color{#bd7013}𖹭‎‎}$‎   ‎  [sign for cookie](https://clear-skies.atabook.org/) ‎ 
+   ‎  ‎  ‎    ‎ ‎  ‎     ‎ ‎ ‎ ‎ ‎  ‎    [extra / rentry](https://rentry.co/fighting-on-the-heights)‎‎    ‎  $\texttt{\color{#bd7013}𖹭‎‎}$ ‎  [prns](https://pronns.cc/@OUT-OF-TIME) ‎‎     $\texttt{\color{#bd7013}𖹭‎‎}$‎   ‎  [sign for cookie](https://clear-skies.atabook.org/) ‎ 
 
 
  ‎ ‎ ‎ ‎ $\texttt{\color{#95b846} [ }$  [Tobi](https://Github.com/kookoobound)‎‎ $\texttt{\color{#4a799a} ,, noob to my guest}$ $\texttt{\color{#95b846} n }$ [Ivary !](https://Github.com/The-Great-Flocci) $\texttt{\color{#36598a} ,, my Best friends !! }$ $\texttt{\color{#95b846} ] }$
