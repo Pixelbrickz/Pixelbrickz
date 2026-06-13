@@ -5,6 +5,12 @@
 
 
 
+<div align="center"> 
+
+<img width="65%" src="https://github.com/user-attachments/assets/907fe778-cfa9-44a2-85af-ca7b5b42f633" />
+
+
+
 
   $\texttt{\color{#a9929b}Welcome}$ $\texttt{\color{#946487}To}$ $\texttt{\color{#946487}The}$ $\texttt{\color{#884f87}Darkness}$ $\texttt{\color{#a14ce2}World}$[.](https://www.youtube.com/watch?v=Ky5pz1dP1JE)
 
@@ -26,7 +32,7 @@ $\texttt{\color{#}placeholder }$
 
 
 [<img width="4%" alt="1" src="https://github.com/user-attachments/assets/abc069c3-e2ba-49d6-81ea-b492aab2453c"/>](https://rentry.co/fighting-on-the-heights)‎‎ $\texttt{\color{#}𖹭}$
- [<img width="4%" alt="2" src="https://github.com/user-attachments/assets/43a8a82b-9a0d-4cf5-a9bf-dccacaa593ad" />](https://pronouns.cc/@OUT-OF-TIME) $\texttt{\color{#}𖹭}$
+ [<img width="4%" alt="2" src="https://github.com/user-attachments/assets/43a8a82b-9a0d-4cf5-a9bf-dccacaa593ad" />](https://pronouns.cc/@Pixelbrickz) $\texttt{\color{#}𖹭}$
 [<img width="4%" alt="3" src="https://github.com/user-attachments/assets/b5a9014b-6240-48b8-916c-c6c9f98b0f1e" />]()‎‎ 
 
 
@@ -51,4 +57,6 @@ $\texttt{\color{#}placeholder }$
 
 
 <div align="center"> 
-<img width="11%" alt="me rn and all the time bro" src="https://github.com/user-attachments/assets/293466b3-2b1e-480a-9c8d-ebe81d05cdd1" /> <- 9 hours just to be unfinished btw HELLO
+<img width="11%" alt="me rn and all the time bro" src="https://github.com/user-attachments/assets/293466b3-2b1e-480a-9c8d-ebe81d05cdd1" />
+  
+  ^^ 9 hours just to be unfinished btw HELLO
