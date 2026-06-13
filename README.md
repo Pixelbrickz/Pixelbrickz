@@ -1,54 +1,12 @@
 
-
- <div align="left"> 
-
- $\texttt{\color{#893811}‎ ‎ ‎"‎In half broken Japanese I wrote to you-"}$
-
- <div align="left">
-   ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎ 
-  ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎ ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎ ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  <img align="left" width="105" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=32231c&label=Strays"> 
- 
- <img align="left" width="37%" src="https://github.com/user-attachments/assets/bb627152-84a5-4924-98d6-081c5f45d434" /> 
-
-   
+  ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎ ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎ ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎ 
+<div align="center"> 
+<img width="60" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=a14ce2&label=🪽">
 
 
-
-<div align="left"> 
-<div align="left">
+$\texttt{\color{#}Welcome}$ $\texttt{\color{#}To}$ $\texttt{\color{#}The}$ $\texttt{\color{#}Darkness}$ $\texttt{\color{#a14ce2}World}$[.](https://www.youtube.com/watch?v=Ky5pz1dP1JE)
 
 
- 
- ‎  ‎  ‎  ‎  ‎  ‎   ‎      ‎  ‎  ‎  ‎ 
-  ‎   ‎   
-   ‎ ‎ ‎  ‎    ‎    
+$\texttt{\color{#} wip, temporary links here in the meantime}$ 
 
- $\texttt{\color{#ab3d0e}        Sword}$ ‎ ꒱꒱　　
-  ‎  ‎  ‎ ‎ ‎  ‎ ‎  ‎ 
-  ‎      
-  ‎         ‎       ‎        ‎       ‎ $\texttt{\color{#bd7013} or pixel(+) }$ <img src="https://i.ibb.co/rvKX2w5/IMG-7763.png">  
-<div align="left">
-
-$\texttt{\color{#95b846} ‎‎  ‎‎⁽⁽ he / she ✦ Genderfluid }$ 
-
-
-  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎   ‎  ‎  ‎ ᧔♡᧓
-
- ‎  ‎  ‎  ‎  ‎  ‎ $\texttt{\color{#679641} c*h ,, int enc, i wont bite }$ 
-
-  ‎  ‎  ‎  ‎    ‎  ‎ $\texttt{\color{#b6874f}︶︶ ‎ 13 n' under iwc ໒꒱ }$ $\texttt{\color{#c8b96a}+ I block freely }$
-  ‎  ‎  ‎  ‎  
-
- ‎ ‎ ‎  ‎       ‎ ‎ ‎  ‎    
-   ‎  ‎  ‎    ‎ ‎  ‎     ‎ ‎ ‎ ‎ ‎  ‎    [extra / rentry](https://rentry.co/fighting-on-the-heights)‎‎    ‎  $\texttt{\color{#bd7013}𖹭‎‎}$ ‎  [prns](https://pronouns.cc/@OUT-OF-TIME) ‎‎     $\texttt{\color{#bd7013}𖹭‎‎}$‎   ‎  [sign for cookie](https://clear-skies.atabook.org/) ‎ 
-
-
- ‎ ‎ ‎ ‎ $\texttt{\color{#95b846} [ }$  [Tobi](https://Github.com/kookoobound)‎‎ $\texttt{\color{#4a799a} ,, noob to my guest}$ $\texttt{\color{#95b846} n }$ [Ivary !](https://Github.com/The-Great-Flocci) $\texttt{\color{#36598a} ,, my Best friends !! }$ $\texttt{\color{#95b846} ] }$
-
-
-
-
- ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ 
-$\texttt{\color{#c8b96a}  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎"Oh, 愛してる oh, 愛してる."}$
- ‎ ‎ ‎  ‎    
-  ‎  ‎    ‎ ‎ ‎   ‎ ‎ ‎  ‎   ‎ ‎ ‎  ‎     ‎ ‎ ‎  ‎     ‎ ‎ ‎  ‎       ‎ ‎ ‎ ‎ ‎‎‎ $\texttt{\color{#bd7013}  ‎  ‎  ‎  ‎ All Art drawn by me : )    ‎  ‎}$
+[extra / rentry](https://rentry.co/fighting-on-the-heights)‎‎    ‎  $\texttt{\color{#}𖹭‎‎}$ ‎  [prns](https://pronouns.cc/@OUT-OF-TIME) ‎‎     $\texttt{\color{#}𖹭‎‎}$‎   ‎  [placeholder]()
