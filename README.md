@@ -1,7 +1,10 @@
 
   ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎ ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎ ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎ 
 <div align="center"> 
+<img align="left" width="11%" alt="flower up" src="https://github.com/user-attachments/assets/bd7fd7a5-b93f-4754-9def-3c599df316fa" />
 <img width="60" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=a14ce2&label=🪽">
+
+
 
 <div align="left"> 
 
@@ -32,8 +35,11 @@ $\texttt{\color{#}placeholder 𖹭‎‎}$
 
 
 
-
 <img align="left" width="11%" src="https://github.com/user-attachments/assets/82d00199-e51b-4922-8c22-f6aeb8e68fcc" />
 <img align="left" width="11%" src="https://github.com/user-attachments/assets/a76ee18b-0c22-4cfb-bacd-85ad7e24b0ff" />
 <img align="left" width="11%" src="https://github.com/user-attachments/assets/64727484-7620-4a93-84fa-d47537a63f1a" />
- 
+  ‎  
+      ‎  
+
+<img align="right" width="11%" alt=flower down src="https://github.com/user-attachments/assets/5aff1e6e-4f8e-46fd-aff4-7cf9ec1dc0f4" />
+
