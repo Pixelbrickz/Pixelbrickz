@@ -1,7 +1,6 @@
 
   ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎ ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎ ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎ 
 <div align="center"> 
-<img align="left" width="11%" alt="flower up" src="https://github.com/user-attachments/assets/bd7fd7a5-b93f-4754-9def-3c599df316fa" />
 <img width="60" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=a14ce2&label=🪽">
 
 
@@ -11,7 +10,7 @@
   $\texttt{\color{#a9929b}Welcome}$ $\texttt{\color{#946487}To}$ $\texttt{\color{#946487}The}$ $\texttt{\color{#884f87}Darkness}$ $\texttt{\color{#a14ce2}World}$[.](https://www.youtube.com/watch?v=Ky5pz1dP1JE)
 
 
-<img align="left" width="37%" src="https://github.com/user-attachments/assets/4c7ca750-58c5-4ea2-9ae0-d2194ff17855" /> $\texttt{\color{#8b5089} wip, temporary links here in the meantime}$ 
+<img align="left" width="47%" src="https://github.com/user-attachments/assets/485bfbf5-bd59-4600-a8c8-128ef5c83a60" /> $\texttt{\color{#8b5089} wip, temporary links here in the meantime}$ 
 
 
 
@@ -41,5 +40,6 @@ $\texttt{\color{#}placeholder 𖹭‎‎}$
   ‎  
       ‎  
 
-<img align="right" width="11%" alt=flower down src="https://github.com/user-attachments/assets/5aff1e6e-4f8e-46fd-aff4-7cf9ec1dc0f4" />
+
+<img align="left" width="11%" alt=flower down src="https://github.com/user-attachments/assets/5aff1e6e-4f8e-46fd-aff4-7cf9ec1dc0f4" />
 
