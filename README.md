@@ -59,4 +59,4 @@ $\texttt{\color{#}placeholder }$
 <div align="center"> 
 <img width="11%" alt="me rn and all the time bro" src="https://github.com/user-attachments/assets/293466b3-2b1e-480a-9c8d-ebe81d05cdd1" />
   
-  ^^ 9 hours just to be unfinished btw HELLO
+  ^^ 9 hours just to be unfinished btw HELLO LMAO
