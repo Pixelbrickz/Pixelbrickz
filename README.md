@@ -26,7 +26,7 @@ $\texttt{\color{#}placeholder 𖹭‎‎}$
 
 
 
-[<img align="left" width="3%" alt="1" src="https://github.com/user-attachments/assets/abc069c3-e2ba-49d6-81ea-b492aab2453c"/>](ttps://rentry.co/fighting-on-the-heights)‎‎ 
+[<img align="left" width="3%" alt="1" src="https://github.com/user-attachments/assets/abc069c3-e2ba-49d6-81ea-b492aab2453c"/>](https://rentry.co/fighting-on-the-heights)‎‎ 
 [<img align="left" width="3%" alt="2" src="https://github.com/user-attachments/assets/43a8a82b-9a0d-4cf5-a9bf-dccacaa593ad" />](https://pronouns.cc/@OUT-OF-TIME) 
 [<img align="left" width="3%" alt="3" src="https://github.com/user-attachments/assets/b5a9014b-6240-48b8-916c-c6c9f98b0f1e" />]()‎‎ 
 
