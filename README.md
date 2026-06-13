@@ -8,7 +8,7 @@
   $\texttt{\color{#}Welcome}$ $\texttt{\color{#}To}$ $\texttt{\color{#}The}$ $\texttt{\color{#}Darkness}$ $\texttt{\color{#a14ce2}World}$[.](https://www.youtube.com/watch?v=Ky5pz1dP1JE)
 
 
-<img align="left" width="37%" src="https://github.com/user-attachments/assets/4c7ca750-58c5-4ea2-9ae0-d2194ff17855" /> />$\texttt{\color{#} wip, temporary links here in the meantime}$ 
+<img align="left" width="37%" src="https://github.com/user-attachments/assets/4c7ca750-58c5-4ea2-9ae0-d2194ff17855" /> $\texttt{\color{#} wip, temporary links here in the meantime}$ 
 
 
 
