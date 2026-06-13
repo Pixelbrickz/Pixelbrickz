@@ -26,14 +26,14 @@ $\texttt{\color{#}placeholder 𖹭‎‎}$
 
 
 
-[<img align="left" width="3%" alt="1" src="https://github.com/user-attachments/assets/abc069c3-e2ba-49d6-81ea-b492aab2453c"/>](https://rentry.co/fighting-on-the-heights)‎‎ 
-[<img align="left" width="3%" alt="2" src="https://github.com/user-attachments/assets/43a8a82b-9a0d-4cf5-a9bf-dccacaa593ad" />](https://pronouns.cc/@OUT-OF-TIME) 
-[<img align="left" width="3%" alt="3" src="https://github.com/user-attachments/assets/b5a9014b-6240-48b8-916c-c6c9f98b0f1e" />]()‎‎ 
+[<img align="left" width="4%" alt="1" src="https://github.com/user-attachments/assets/abc069c3-e2ba-49d6-81ea-b492aab2453c"/>](https://rentry.co/fighting-on-the-heights)‎‎ 
+[<img align="left" width="4%" alt="2" src="https://github.com/user-attachments/assets/43a8a82b-9a0d-4cf5-a9bf-dccacaa593ad" />](https://pronouns.cc/@OUT-OF-TIME) 
+[<img align="left" width="4%" alt="3" src="https://github.com/user-attachments/assets/b5a9014b-6240-48b8-916c-c6c9f98b0f1e" />]()‎‎ 
 
 
 
 
-<img align="left" width="10%" src="https://github.com/user-attachments/assets/82d00199-e51b-4922-8c22-f6aeb8e68fcc" />
-<img align="left" width="10%" src="https://github.com/user-attachments/assets/a76ee18b-0c22-4cfb-bacd-85ad7e24b0ff" />
-<img align="left" width="10%" src="https://github.com/user-attachments/assets/64727484-7620-4a93-84fa-d47537a63f1a" />
+<img align="left" width="11%" src="https://github.com/user-attachments/assets/82d00199-e51b-4922-8c22-f6aeb8e68fcc" />
+<img align="left" width="11%" src="https://github.com/user-attachments/assets/a76ee18b-0c22-4cfb-bacd-85ad7e24b0ff" />
+<img align="left" width="11%" src="https://github.com/user-attachments/assets/64727484-7620-4a93-84fa-d47537a63f1a" />
  
