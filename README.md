@@ -42,3 +42,13 @@ $\texttt{\color{#}placeholder }$
 
 <img width="11%" alt=flower down src="https://github.com/user-attachments/assets/5aff1e6e-4f8e-46fd-aff4-7cf9ec1dc0f4" />
 
+
+
+
+
+<img width="70%" src="https://github.com/user-attachments/assets/907fe778-cfa9-44a2-85af-ca7b5b42f633" />
+
+
+
+<div align="center"> 
+<img width="11%" alt="me rn and all the time bro" src="https://github.com/user-attachments/assets/293466b3-2b1e-480a-9c8d-ebe81d05cdd1" /> <- 9 hours just to be unfinished btw HELLO
