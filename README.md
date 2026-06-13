@@ -10,7 +10,7 @@
   $\texttt{\color{#a9929b}Welcome}$ $\texttt{\color{#946487}To}$ $\texttt{\color{#946487}The}$ $\texttt{\color{#884f87}Darkness}$ $\texttt{\color{#a14ce2}World}$[.](https://www.youtube.com/watch?v=Ky5pz1dP1JE)
 
 
-<img align="left" width="47%" src="https://github.com/user-attachments/assets/485bfbf5-bd59-4600-a8c8-128ef5c83a60" /> $\texttt{\color{#8b5089} wip, temporary links here in the meantime}$ 
+<img align="left" width="50%" src="https://github.com/user-attachments/assets/485bfbf5-bd59-4600-a8c8-128ef5c83a60" /> $\texttt{\color{#8b5089} wip, temporary links here in the meantime}$ 
 
 
 
