@@ -13,4 +13,5 @@ $\texttt{\color{#946487}Wip !! in the meantime check this stuff out ig ? }$
  [<img width="4%" alt="2" src="https://github.com/user-attachments/assets/43a8a82b-9a0d-4cf5-a9bf-dccacaa593ad" />](https://pronouns.cc/@Pixelbrickz) $\texttt{\color{#}𖹭}$
 [<img width="4%" alt="3" src="https://github.com/user-attachments/assets/b5a9014b-6240-48b8-916c-c6c9f98b0f1e" />]()‎‎ 
 
+
 https://files.catbox.moe/b8gi1b.png is blue https://files.catbox.moe/2p2mx1.png is brown ok hi exor !
