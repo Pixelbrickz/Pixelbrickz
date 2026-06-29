@@ -15,8 +15,3 @@ $\texttt{\color{#946487}Wip !! in the meantime check this stuff out ig ? }$
 
 
 
-<img width="448" height="468" alt="Screenshot 2026-06-29 085854" src="https://github.com/user-attachments/assets/741cce4a-ba5a-4f6d-8bdb-5f7098713c0e" />
-<img width="439" height="472" alt="Screenshot 2026-06-29 085843" src="https://github.com/user-attachments/assets/64301004-f99f-4d2e-b4c2-5ddfc058d550" />
-<img width="465" height="539" alt="Screenshot 2026-06-29 085830" src="https://github.com/user-attachments/assets/6cc08980-ea8a-440c-a892-37dd73ff9ff8" />
-
-hi exor
