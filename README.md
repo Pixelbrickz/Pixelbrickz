@@ -14,6 +14,8 @@ $\texttt{\color{#946487}Wip !! in the meantime check this stuff out ig ? }$
 [<img width="4%" alt="3" src="https://github.com/user-attachments/assets/b5a9014b-6240-48b8-916c-c6c9f98b0f1e" />]()‎‎ 
 
 
-<img width="334" height="445" alt="Screenshot 2026-06-29 194248" src="https://github.com/user-attachments/assets/f761e3be-cb83-4155-9a05-a40e37ef11c0" />
+<img width="385" height="433" alt="Screenshot 2026-06-29 204231" src="https://github.com/user-attachments/assets/eaa52525-6ca0-46ec-b950-21219b641270" />
 
-LOOK AT MY CUTE EGGCHAN HAIR : -3 i need to finish texturing it ok..
+<img width="234" height="315" alt="Screenshot 2026-06-29 204242" src="https://github.com/user-attachments/assets/1b72b00f-3689-4bfb-a78b-524959af6768" />
+
+I FINISHED !!!
