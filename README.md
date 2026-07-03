@@ -1,12 +1,12 @@
 <div align="center"> 
 
 
-<img width="60" align="center" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=a14ce2&label=💌">
+<img width="60" align="center" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=000000&label=✦">
 
 
 
 
-$\texttt{\color{#946487}Wip !! in the meantime check this stuff out ig ? }$
+$\texttt{\color{#499700}Wip !! in the meantime check this stuff out ig ? }$
 
 <img width="40%" height="100" src="https://github.com/user-attachments/assets/43f69f10-bdc5-4608-9b0e-6cfb39d37ff1" />
 
@@ -17,8 +17,5 @@ $\texttt{\color{#946487}Wip !! in the meantime check this stuff out ig ? }$
 
  sign my ata [here](https://clear-skies.atabook.org/)‎‎ 
 
-<img width="40%" alt="color gang yay!__fliter--dark-blue-sepia__channel--green__mode--darken" src="https://github.com/user-attachments/assets/4ff65853-1507-4b8d-9779-a6a7962a2516" />
-
-me n my gang
 
 
