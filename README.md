@@ -6,7 +6,7 @@
 
 
 
-$\texttt{\color{#499700}Wip !! in the meantime check this stuff out ig ? }$
+$\texttt{\color{#}Wip - in the meantime check this stuff out ig  }$
 
 <img width="40%" height="100" src="https://github.com/user-attachments/assets/43f69f10-bdc5-4608-9b0e-6cfb39d37ff1" />
 
