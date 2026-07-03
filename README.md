@@ -4,8 +4,10 @@
 
 
 
-[<img width="50%" alt="ART BELONGS TO MUDBUG ON PIN!!" src="https://github.com/user-attachments/assets/b3256111-8af0-4645-ad84-5f35dcd44f82" />](https://www.pinterest.com/seabugged/)‎‎
+worlds biggest losers right here (us)
 
+
+<img width="45%" src="https://github.com/user-attachments/assets/cb6f4383-d18d-49ee-9680-bb3e7fc511f6" />
 
 $\texttt{\color{#946487}Wip !! in the meantime check this stuff out ig ? }$
 
@@ -18,3 +20,5 @@ $\texttt{\color{#946487}Wip !! in the meantime check this stuff out ig ? }$
 <img width="40%" alt="color gang yay!__fliter--dark-blue-sepia__channel--green__mode--darken" src="https://github.com/user-attachments/assets/4ff65853-1507-4b8d-9779-a6a7962a2516" />
 
 me n my gang
+
+
