@@ -20,7 +20,7 @@ $\texttt{\color{#}got lazy have these 3   }$
 
  sign my ata [here](https://clear-skies.atabook.org/)‎‎ 
 
-DUDE ITS BEEN LITERALLY 3 DAYS https://rentry.co/fighting-on-the-heights IS NO LONGER MINE I CHANGED IT AND WHOEVER CLAIMED IT PUT THAT WHAT THE HELL 🥹
+DUDE ITS BEEN LITERALLY 3 DAYS https://rentry.co/fighting-on-the-heights IS NO LONGER MINE I CHANGED MY URL AND WHOEVER CLAIMED IT PUT THAT WHAT THE HELL 🥹
 
 
 ✦
