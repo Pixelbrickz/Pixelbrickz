@@ -21,4 +21,9 @@ $\texttt{\color{#}got lazy have these 3   }$
  sign my ata [here](https://clear-skies.atabook.org/)‎‎ 
 
 
+✦
 
+
+people im usually with 
+
+[Michael](https://github.com/OV3RCA5T)‎‎ , [Tobi](https://github.com/eggchanie) ,[Sol](https://github.com/weepingarchangel)  , [exor](https://github.com/aesvic) 
