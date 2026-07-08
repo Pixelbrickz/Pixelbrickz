@@ -9,7 +9,7 @@
 $\texttt{\color{#}Wip - in the meantime check this stuff out ig  }$
 
 
-<img width="53%" src="https://github.com/user-attachments/assets/2418f6cf-339e-4f3b-af52-07328fe0c059" />
+<img width="53%" src="https://github.com/user-attachments/assets/dfc0016f-4521-4d2e-b56a-ba5ce86fea88" />
 
 
 $\texttt{\color{#}got lazy have these 3   }$
