@@ -14,13 +14,13 @@ $\texttt{\color{#}Wip - in the meantime check this stuff out ig  }$
 
 $\texttt{\color{#}got lazy have these 3   }$
 
-[wip rentry (empty)]()‎‎ $\texttt{\color{#}𖹭}$
+[wip rentry (empty)](https://rentry.co/HEAVENIY-YOU)‎‎ $\texttt{\color{#}𖹭}$
  [prns](https://pronouns.cc/@Pixelbrickz) $\texttt{\color{#}𖹭}$
 [free comm rentry](https://rentry.co/tsc-art-spot)‎‎ 
 
  sign my ata [here](https://clear-skies.atabook.org/)‎‎ 
 
-DUDE ITS BEEN LITERALLY 3 DAYS **.co/fighting-on-the-heights** IS NO LONGER MINE I CHANGED MY URL AND WHOEVER CLAIMED IT PUT THAT. THAT IS **NOT ME** 😭. my rentry is something else now but I'm on vacation and my ass forgot the url.
+**.co/fighting-on-the-heights** IS NO LONGER MINE I CHANGED MY URL. THAT IS **NOT ME** 😭. my rentry is [co./HEAVENIY-YOU](https://rentry.co/HEAVENIY-YOU)
 
 
 ✦
