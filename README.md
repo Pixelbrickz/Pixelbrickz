@@ -12,7 +12,7 @@ $\texttt{\color{#}Wip - i kinda wanna make this eunoia themed now  }$
 <img width="53%" src="https://github.com/user-attachments/assets/dfc0016f-4521-4d2e-b56a-ba5ce86fea88" />
 
 
-$\texttt{\color{#}got lazy have these 3   }$
+$\texttt{\color{#}i HATE them.. /j   }$
 
 [rentry](https://rentry.co/Moonlight-Prance)‎‎ $\texttt{\color{#}𖹭}$
  [prn.cc](https://pronouns.cc/@Pixelbrickz) $\texttt{\color{#}𖹭}$
