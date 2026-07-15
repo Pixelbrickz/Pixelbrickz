@@ -6,7 +6,7 @@
 
 
 
-$\texttt{\color{#}Wip - in the meantime check this stuff out ig  }$
+$\texttt{\color{#}Wip - i kinda wanna make this eunoia themed now  }$
 
 
 <img width="53%" src="https://github.com/user-attachments/assets/dfc0016f-4521-4d2e-b56a-ba5ce86fea88" />
