@@ -1,7 +1,7 @@
 <div align="center"> 
 
 
-THE TSC OF PT LETS GOO [**@pt-walk-of-fame**](https://github.com/pt-walk-of-fame) YEAH!!
+THE TSC OF PT LETS GOO [**@pt-walk-of-fame**](https://github.com/pt-walk-of-fame) HELL YEAH!!
 
 <img width="60" align="center" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=000000&label=✦">
 
