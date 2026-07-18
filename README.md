@@ -28,4 +28,4 @@ $\texttt{\color{#}hope nun bad happens to them...   }$
 
 people im usually with 
 
-[Michael](https://github.com/OV3RCA5T)‎‎ , [Tobi](https://github.com/eggchannie) , [Sol](https://github.com/weepingarchangel)  , [Exor](https://github.com/aesvic) 
+[Michael](https://github.com/OV3RCA5T)‎‎ , [Tobi](https://github.com/eggchannie) , [Sol](https://github.com/weepingarchangel)  , [Exor](https://github.com/aesvic)  , [rocket](https://github.com/starfollower)
