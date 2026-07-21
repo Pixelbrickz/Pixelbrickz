@@ -1,14 +1,14 @@
 <div align="center"> 
 
 
-THE TSC OF PT LETS GOO [**@pt-walk-of-fame**](https://github.com/pt-walk-of-fame) HELL YEAH!!
+THE TSC OF PT [**@pt-walk-of-fame**](https://github.com/pt-walk-of-fame) HELL YEAH!!
 
 <img width="60" align="center" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=000000&label=✦">
 
 
 
 
-$\texttt{\color{#}Wip - i kinda wanna make this eunoia themed now  }$
+$\texttt{\color{#}Wip - nvm bro i'll just redraw stuff OK.  }$
 
 
 <img width="53%" src="https://github.com/user-attachments/assets/dfc0016f-4521-4d2e-b56a-ba5ce86fea88" />
