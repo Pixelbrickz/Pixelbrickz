@@ -1,8 +1,5 @@
 <div align="center"> 
 
-
-THE TSC OF PT [**@pt-walk-of-fame**](https://github.com/pt-walk-of-fame) HELL YEAH!!
-
 <img width="70" align="center" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=5f237d&label=✦">
 
 $\texttt{\color{#}  }$
@@ -14,7 +11,6 @@ $\texttt{\color{#}  }$
 
 $\texttt{\color{#}WIP !  !   }$
 
-
 <img width="53" src="https://github.com/user-attachments/assets/d896588e-1af7-4bef-9bd1-f45ddb98d568" />
 
 
@@ -23,7 +19,6 @@ $\texttt{\color{#}WIP !  !   }$
 [roblox acc comm](https://rentry.co/tsc-art-spot)‎‎ 
 
  sign my ata [here](https://clear-skies.atabook.org/)‎‎ 
-
 
 ✦
 
