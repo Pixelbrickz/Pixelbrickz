@@ -34,7 +34,7 @@ $\texttt{\color{#946685} 𑙗 }$  $\texttt{\color{#4d2f48} he/she }$  ㅤ $\text
 
 people im usually with 
 
-[Michael](https://github.com/OV3RCA5T)‎‎ , [Tobi](https://github.com/eggchannie) , [Sol](https://github.com/weeping-archangel)  , [Exor](https://github.com/aesvic)  , [Rocket](https://github.com/starfollower)
+[Michael](https://github.com/OV3RCA5T)‎‎ , [Tobi](https://github.com/MASQUERADE-PARTY) , [Sol](https://github.com/weeping-archangel)  , [Exor](https://github.com/aesvic)  , [Rocket](https://github.com/starfollower)
 
 <img src=https://i.postimg.cc/4yyV4WGN/IMG_4026.gif />
 <img width="70" align="center" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=5f237d&label=𝄞">
