@@ -36,8 +36,8 @@ people im usually with
 
 [Michael](https://github.com/OV3RCA5T)‎‎ , [Tobi](https://github.com/eggchannie) , [Sol](https://github.com/weeping-archangel)  , [Exor](https://github.com/aesvic)  , [Rocket](https://github.com/starfollower)
 
-<img src=https://i.postimg.cc/HkSX8WHH/spir10.gif />
+<img src=https://i.postimg.cc/4yyV4WGN/IMG_4026.gif />
 <img width="70" align="center" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=5f237d&label=𝄞">
-<img src=https://i.postimg.cc/HkSX8WHH/spir10.gif />
+<img src=https://i.postimg.cc/4yyV4WGN/IMG_4026.gif />
 
 ꒰৯ ‿‿◞ <img src="https://i.postimg.cc/PrrTx00M/IMG_3954.gif" /> ◟‿‿ ໒꒱
