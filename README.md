@@ -13,17 +13,17 @@ $\texttt{\color{#}  }$
 <img width="43%" src="https://github.com/user-attachments/assets/2621fe6d-2be9-4c29-9c8a-16eec3f595c3" />
 
 
-$\texttt{\color{#}WIP !  !   }$
+$\texttt{\color{#dbb9ac}WIP !  !   }$
 
 
-$\texttt{\color{#332d56} 𑙗 }$  $\texttt{\color{#36456f} he/she }$  ㅤ $\texttt{\color{#456589} 13 n under iwc }$  ㅤ $\texttt{\color{#5f7b8d} c*h freely i like cuddles. }$ $\texttt{\color{#332d56} 𑙙 }$
+$\texttt{\color{#946685} 𑙗 }$  $\texttt{\color{#4d2f48} he/she }$  ㅤ $\texttt{\color{#633955} 13 n under iwc }$  ㅤ $\texttt{\color{#844d6d} c*h freely i like cuddles!! }$ $\texttt{\color{#c89f9d} 𑙙 }$
 
 [prn.cc](https://pronouns.cc/@Pixelbrickz) ‎‎  ‎‎  <img width="7%" src="https://github.com/user-attachments/assets/df715c72-d738-4c4c-881f-fcad560b19de" />  ‎‎ ‎  [atabook](https://clear-skies.atabook.org/)  
 
-  $\texttt{\color{#456589}╰}$ㅤ  [rentry](https://rentry.co/Moonlight-Prance)ㅤ  $\texttt{\color{#456589}╯}$
+  $\texttt{\color{#866687}╰}$ㅤ  [rentry](https://rentry.co/Moonlight-Prance)ㅤ  $\texttt{\color{#866687}╯}$
 
 
-✦
+⟡
 
 <img width="63%" src="https://github.com/user-attachments/assets/8a77f54b-cd3e-4144-933f-a9d2269c5f41" />
 
@@ -31,8 +31,8 @@ $\texttt{\color{#332d56} 𑙗 }$  $\texttt{\color{#36456f} he/she }$  ㅤ $\text
 
 people im usually with 
 
-[Michael](https://github.com/OV3RCA5T)‎‎ , [Tobi](https://github.com/eggchannie) , [Sol](https://github.com/weepingarchangel)  , [Exor](https://github.com/aesvic)  , [Rocket](https://github.com/starfollower)
+[Michael](https://github.com/OV3RCA5T)‎‎ , [Tobi](https://github.com/eggchannie) , [Sol](https://github.com/weeping-archangel)  , [Exor](https://github.com/aesvic)  , [Rocket](https://github.com/starfollower)
 
 
 
-<img src="https://i.postimg.cc/xdWLjvCK/IMG_3833.gif" />
+꒰৯ ‿‿◞ <img src="https://i.postimg.cc/PrrTx00M/IMG_3954.gif" /> ◟‿‿ ໒꒱
