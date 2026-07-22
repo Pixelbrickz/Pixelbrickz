@@ -5,14 +5,15 @@
 $\texttt{\color{#}  }$
 
 
-<img width="63%" src="https://github.com/user-attachments/assets/19641d97-16d8-4e00-8d9d-b5b5c67b14a0" />
+<img width="63%" src="https://github.com/user-attachments/assets/8a77f54b-cd3e-4144-933f-a9d2269c5f41" />
 
-<img width="53%" src="https://github.com/user-attachments/assets/81881546-8769-47c1-a345-a72c7b339ce6" />
+
+<img width="43%" src="https://github.com/user-attachments/assets/2621fe6d-2be9-4c29-9c8a-16eec3f595c3" />
+
 
 $\texttt{\color{#}WIP !  !   }$
 
-<img width="53" src="https://github.com/user-attachments/assets/d896588e-1af7-4bef-9bd1-f45ddb98d568" />
-
+<img width="7%" src="https://github.com/user-attachments/assets/dd3d5cdb-da9e-442f-b0bc-8b142e9cd125" />
 
 [rentry](https://rentry.co/Moonlight-Prance)‎‎ $\texttt{\color{#}𖹭}$ 
  [prn.cc](https://pronouns.cc/@Pixelbrickz) $\texttt{\color{#}𖹭}$
@@ -22,7 +23,7 @@ $\texttt{\color{#}WIP !  !   }$
 
 ✦
 
-<img width="63%" src="https://github.com/user-attachments/assets/19641d97-16d8-4e00-8d9d-b5b5c67b14a0" />
+<img width="63%" src="https://github.com/user-attachments/assets/8a77f54b-cd3e-4144-933f-a9d2269c5f41" />
 
 
 people im usually with 
