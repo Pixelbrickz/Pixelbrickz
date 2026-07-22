@@ -3,7 +3,9 @@
 
 THE TSC OF PT [**@pt-walk-of-fame**](https://github.com/pt-walk-of-fame) HELL YEAH!!
 
-<img width="60" align="center" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=000000&label=✦">
+<img width="60" align="center" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=5f237d&label=✦">
+
+
 
 
 
@@ -11,10 +13,12 @@ THE TSC OF PT [**@pt-walk-of-fame**](https://github.com/pt-walk-of-fame) HELL YE
 $\texttt{\color{#}Wip - nvm bro i'll just redraw stuff OK.  }$
 
 
-<img width="53%" src="https://github.com/user-attachments/assets/dfc0016f-4521-4d2e-b56a-ba5ce86fea88" />
+<img width="63%" src="https://github.com/user-attachments/assets/19641d97-16d8-4e00-8d9d-b5b5c67b14a0" />
 
 
-$\texttt{\color{#}hope nun bad happens to them...   }$
+<img width="53%" src="https://github.com/user-attachments/assets/81881546-8769-47c1-a345-a72c7b339ce6" />
+
+$\texttt{\color{#}WIP !  !   }$
 
 [rentry](https://rentry.co/Moonlight-Prance)‎‎ $\texttt{\color{#}𖹭}$
  [prn.cc](https://pronouns.cc/@Pixelbrickz) $\texttt{\color{#}𖹭}$
@@ -24,6 +28,8 @@ $\texttt{\color{#}hope nun bad happens to them...   }$
 
 
 ✦
+
+<img width="63%" src="https://github.com/user-attachments/assets/19641d97-16d8-4e00-8d9d-b5b5c67b14a0" />
 
 
 people im usually with 
