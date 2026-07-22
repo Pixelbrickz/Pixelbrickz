@@ -3,18 +3,12 @@
 
 THE TSC OF PT [**@pt-walk-of-fame**](https://github.com/pt-walk-of-fame) HELL YEAH!!
 
-<img width="60" align="center" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=5f237d&label=✦">
-
-
-
-
-
+<img width="70" align="center" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=5f237d&label=✦">
 
 $\texttt{\color{#}  }$
 
 
 <img width="63%" src="https://github.com/user-attachments/assets/19641d97-16d8-4e00-8d9d-b5b5c67b14a0" />
-
 
 <img width="53%" src="https://github.com/user-attachments/assets/81881546-8769-47c1-a345-a72c7b339ce6" />
 
