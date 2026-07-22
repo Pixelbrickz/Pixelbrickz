@@ -10,7 +10,7 @@ THE TSC OF PT [**@pt-walk-of-fame**](https://github.com/pt-walk-of-fame) HELL YE
 
 
 
-$\texttt{\color{#}Wip - nvm bro i'll just redraw stuff OK.  }$
+$\texttt{\color{#}  }$
 
 
 <img width="63%" src="https://github.com/user-attachments/assets/19641d97-16d8-4e00-8d9d-b5b5c67b14a0" />
