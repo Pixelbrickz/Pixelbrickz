@@ -2,7 +2,7 @@
 
 
 $\texttt{\color{#}  }$
-
+$\texttt{\color{#} BEST VIEWED IN DARK MODE(S) BTW SORRY!! }$
 
 <img width="63%" src="https://github.com/user-attachments/assets/8a77f54b-cd3e-4144-933f-a9d2269c5f41" />
 
