@@ -21,7 +21,7 @@ $\texttt{\color{#dbb9ac}WIP !  !   }$
 
 $\texttt{\color{#946685} 𑙗 }$  $\texttt{\color{#4d2f48} he/she }$  ㅤ $\texttt{\color{#633955} 13 n under iwc }$  ㅤ $\texttt{\color{#844d6d} c*h FREELY i love cuddles!! }$ $\texttt{\color{#c89f9d} 𑙙 }$
 
-[prn.cc](https://pronouns.cc/@Pixelbrickz) ‎‎  ‎‎  <img width="7%" src="https://github.com/user-attachments/assets/df715c72-d738-4c4c-881f-fcad560b19de" />  ‎‎ ‎  [atabook](https://clear-skies.atabook.org/)  
+[prn.cc](https://pronouns.cc/@Pixelbrickz) ‎‎  ‎‎  <img width="7%" src="https://github.com/user-attachments/assets/df715c72-d738-4c4c-881f-fcad560b19de" />  ‎‎ ‎  [atabook](https://kickflip.atabook.org/)  
 
   $\texttt{\color{#866687}╰}$ㅤ  [rentry](https://rentry.co/Moonlight-Prance)ㅤ  $\texttt{\color{#866687}╯}$
 
