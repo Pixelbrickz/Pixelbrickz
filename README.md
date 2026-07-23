@@ -23,7 +23,7 @@ $\texttt{\color{#946685} 𑙗 }$  $\texttt{\color{#4d2f48} he/she }$  ㅤ $\text
 
 [prn.cc](https://pronouns.cc/@Pixelbrickz) ‎‎  ‎‎  <img width="7%" src="https://github.com/user-attachments/assets/df715c72-d738-4c4c-881f-fcad560b19de" />  ‎‎ ‎  [atabook](https://kickflip.atabook.org/)  
 
-  $\texttt{\color{#866687}╰}$ㅤ  [rentry](https://rentry.co/Moonlight-Prance)ㅤ  $\texttt{\color{#866687}╯}$
+  $\texttt{\color{#866687}╰}$ㅤ  [rentry](https://rentry.co/SWlNG-IT)ㅤ  $\texttt{\color{#866687}╯}$
 
 
 ⟡
