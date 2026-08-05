@@ -9,9 +9,15 @@ wipp
 yo im way too lazy to add things back check my alts in status for stuff on me
 
 [@OV3RCA5T](https://github.com/OV3RCA5T) best friend #6ever 
- ㅤ ㅤ 
 
  ㅤ ㅤ 
+ ㅤ ㅤ 
+
+  ㅤ ㅤ 
+ 
 
  ㅤ ㅤ 
+sign my [ata](https://kickflip.atabook.org/) it'd make me happy 
+ ㅤ ㅤ 
+ 
 ponytowns TSC [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) & Xqree [@pt-hall-of-media](https://github.com/pt-hall-of-media)
