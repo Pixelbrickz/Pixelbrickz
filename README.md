@@ -21,3 +21,5 @@ sign my [ata](https://kickflip.atabook.org/) it'd make me happy
  ㅤ ㅤ 
  
 ponytowns TSC [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) & Xqree [@pt-hall-of-media](https://github.com/pt-hall-of-media)
+
+*should mention i have no definate style i either copy my old ponies or whatever i remember abt my style. i forget how to make ponies ALOT 🥀*
