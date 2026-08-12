@@ -8,7 +8,7 @@ wipp
 
 yo im way too lazy to add things back check my alts in status for stuff on me
 
-[@OV3RCA5T](https://github.com/OV3RCA5T) best friend #6ever 
+[@OV3RCA5T](https://github.com/OV3RCA5T) best friend #6ever ♡
 
  ㅤ ㅤ 
  ㅤ ㅤ 
