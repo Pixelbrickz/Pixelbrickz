@@ -1,3 +1,8 @@
+<div align="center"> 
+
+
+ponytowns [TSC](https://github.com/pt-walk-of-fame) & [Xqree](https://github.com/pt-hall-of-media)
+
 
 <div align="center"> 
 
@@ -14,15 +19,12 @@ yo im way too lazy to add things back check my alts in status for stuff on me
  ㅤ ㅤ 
 
   ㅤ ㅤ 
+  
  
 
  ㅤ ㅤ 
 sign my [ata](https://kickflip.atabook.org/) it'd make me happy 
  ㅤ ㅤ 
  
-ponytowns TSC [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) & Xqree [@pt-hall-of-media](https://github.com/pt-hall-of-media)
 
-*should mention i have no definate style i either copy my old ponies or whatever i remember abt my style. i forget how to make ponies ALOT*
-
-
-**i couldn't fit everyone in my mentions do not take it personally i would still take a bullet for all of you ok? unless your name is tobi or sol (I.AM.JOKING.)**
+**i couldn't fit everyone in my mentions do not take it personally i would still take a bullet for all of you ok?**
