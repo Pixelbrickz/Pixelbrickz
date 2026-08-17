@@ -9,22 +9,24 @@ ponytowns [TSC](https://github.com/pt-walk-of-fame) & [Xqree](https://github.com
 
 <img width="95" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=000000&label=waves"> 
 
-wipp
+wip
 
-yo im way too lazy to add things back check my alts in status for stuff on me
+too lazy to add things back check my alts in status for stuff on me.
 
-[@OV3RCA5T](https://github.com/OV3RCA5T) best friend #6ever ♡
+[@OV3RCA5T](https://github.com/OV3RCA5T) best friend! #6ever ♡
 
  ㅤ ㅤ 
  ㅤ ㅤ 
+ 
+ Not doing well, don't expect alot out of me alright.
 
   ㅤ ㅤ 
   
  
 
  ㅤ ㅤ 
-sign my [ata](https://kickflip.atabook.org/) it'd make me happy 
+sign my [ata](https://kickflip.atabook.org/) ^_^
  ㅤ ㅤ 
  
 
-**i couldn't fit everyone in my mentions do not take it personally i would still take a bullet for all of you ok?**
+**i couldn't fit everyone in my mentions do not take it personally ok?**
