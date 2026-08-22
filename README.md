@@ -10,10 +10,8 @@
 
 
 
-<p align="left">
-<img  width="30%" src="https://files.catbox.moe/23nv2r.png">
+<img align="left" width="30%" src="https://files.catbox.moe/23nv2r.png">
 </p>
-<div align="center"> 
 
 
 <div align="center"> 
@@ -21,12 +19,9 @@
 
 wip
 
-<br>
-<br>
-
 <details>
 <summary> </summary>
-
+meow
 
 </details>
             
