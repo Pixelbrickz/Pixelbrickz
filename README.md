@@ -9,26 +9,17 @@
 
 
 
+
 <p align="left">
-  image placeholder!! 
+<img  width="30%" src="https://files.catbox.moe/23nv2r.png">
 </p>
 <div align="center"> 
 
 
-
-
 <div align="center"> 
 
 
-
 wip
-
-
-  ㅤ ㅤ 
-  
-
-  ㅤ ㅤ 
-  
 
 <br>
 <br>
@@ -41,9 +32,3 @@ wip
             
 </p>
 </td>
-
-
-
-
-
-
