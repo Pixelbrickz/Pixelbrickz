@@ -28,8 +28,12 @@
 
 [@OV3RCA5T](https://github.com/OV3RCA5T) best friend ♡ hi michael! ^_^
 
+huge lack of empathy atm, unless im fond of you i might not care.
 
-<div align="center"> 
+
+ㅤㅤㅤ 
+
+though i am not mean, interact! i don't bite
 
 
 wip
