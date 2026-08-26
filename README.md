@@ -40,7 +40,10 @@ wip
 
 <details>
 <summary> </summary>
-meow
+heyy notice this alot but don't assume i hate you if i haven't said anything, im a very friendly person so the odds of you ticking me off are rare. if i dont like you i'd either tell you or block you ok?
+
+
+so no im not that scary
 
 </details>
  ㅤ
