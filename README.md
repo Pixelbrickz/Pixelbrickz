@@ -1,26 +1,29 @@
 <div align="center">
   
   $\texttt{\color{#a9929b}color1}$ $\texttt{\color{#946487}color2}$ $\texttt{\color{#946487}color3}$ $\texttt{\color{#884f87}color4}$ $\texttt{\color{#a14ce2}color5}$        
-        
-                                        
+                                      
 <table>
 <tr>
 <td>
 </p>
-
-
-
-  ‎<div align="center">
-        ‎ 
+       ‎ 
   ‎ ‎  ‎ 
-  
+    <div align="center">
+
+
  <img width="85" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=000000&label=kills"> 
 
-  
-  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎ ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎ ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎ 
 
+
+
+[michael](https://github.com/OV3RCA5T) , [exor](https://github.com/aesvic) , [rocket](https://github.com/starfollower)  ♡
+
+i like these people alot :-)
+
+    
 huge lack of empathy atm, unless im fond of you i might not care.
 
+</p>
 
 ㅤㅤㅤ 
 
