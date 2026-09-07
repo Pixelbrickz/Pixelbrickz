@@ -15,13 +15,18 @@
 
 
 
-
 [michael](https://github.com/OV3RCA5T) , [exor](https://github.com/aesvic) , [rocket](https://github.com/starfollower)  ♡
 
 i like these people alot :-)
 
+
+
+<img width="50%" src="https://file.garden/ap4TcwQ-Vxf35U_x/Plant%20sona" />
+
+
     
-huge lack of empathy atm, unless im fond of you i might not care.
+plenty of things wrong w/me I won't disclose here, just be nice ok?
+
 
 </p>
 
