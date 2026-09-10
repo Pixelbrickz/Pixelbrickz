@@ -17,7 +17,6 @@
 
 [michael](https://github.com/OV3RCA5T) , [exor](https://github.com/aesvic) , [rocket](https://github.com/starfollower)  ♡
 
-i like these people alot :-)
 
 
 
@@ -25,17 +24,15 @@ i like these people alot :-)
 
 
     
-plenty of things wrong w/me I won't disclose here, just be nice ok?
 
 
 </p>
 
 ㅤㅤㅤ 
 
-though i am not mean, interact! i don't bite.
 
 
-wip
+wip cause im LAZY and school turned me EVIL.
 
 
 <details>
