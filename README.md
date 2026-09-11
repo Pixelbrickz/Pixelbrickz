@@ -11,7 +11,7 @@
     <div align="center">
 
 
- <img width="85" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=000000&label=kills"> 
+ <img width="70" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=000000&label=🐟"> 
 
 
 
