@@ -15,7 +15,6 @@
 
 
 
-[michael](https://github.com/OV3RCA5T) , [exor](https://github.com/aesvic) , [rocket](https://github.com/starfollower)  ♡
 
 
 
