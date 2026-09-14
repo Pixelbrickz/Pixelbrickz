@@ -15,8 +15,7 @@
 
     
 
-<img width="70%" height="70%" src="https://github.com/user-attachments/assets/ac40c576-fa88-47f5-b0f5-7b636a5402ec" />
-  
+<img width="70%" height="70%" src="https://github.com/user-attachments/assets/e825ccab-4155-43ec-bd5c-0059788ede42" />  
 ㅤㅤㅤ
 
   $\texttt{\color{#a9929b}" it'll}$ $\texttt{\color{#946487} be}$ $\texttt{\color{#946487}ok}$ $\texttt{\color{#884f87}my}$ $\texttt{\color{#a14ce2}friend . . "}$        
