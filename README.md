@@ -18,9 +18,12 @@
 <img width="70%" height="70%" src="https://github.com/user-attachments/assets/e825ccab-4155-43ec-bd5c-0059788ede42" />  
 ㅤㅤㅤ
 
-  $\texttt{\color{#a9929b}" it'll}$ $\texttt{\color{#946487} be}$ $\texttt{\color{#946487}ok}$ $\texttt{\color{#884f87}my}$ $\texttt{\color{#a14ce2}friend . . "}$        
+  $\texttt{\color{#a9929b}" it'll}$ $\texttt{\color{#946487}be}$ $\texttt{\color{#946487}ok}$ $\texttt{\color{#884f87}my}$ $\texttt{\color{#a14ce2}friend . . "}$        
 
 
+  $\texttt{\color{#a9929b}13-under iwec/dni}$
+
+  
 <details>
 <summary> </summary>
 big fat wip haii
@@ -29,6 +32,7 @@ big fat wip haii
 
   people i luv 
   
- [micheal]() [tobi]() [sol]() [exor]() [rocket]() [dad]() +! 
+WIP
+
 </p>
 
