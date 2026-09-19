@@ -4,7 +4,7 @@
 
 </p>
        ‎ 
- <img width="70" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=000000&label=🌻"> 
+ <img width="70" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=000000&label=🪽"> 
   ‎ ‎  ‎ 
     <div align="center">
 
@@ -17,10 +17,10 @@
 <img width="70%" height="70%" src="https://github.com/user-attachments/assets/e825ccab-4155-43ec-bd5c-0059788ede42" />  
 ㅤㅤㅤ
 
-  $\texttt{\color{#db6023}" it'll}$ $\texttt{\color{#e8f2bd}be}$ $\texttt{\color{#e0cf34}ok,}$ $\texttt{\color{#41b5b5}alright}$ $\texttt{\color{#289e61}vampguest? . . "}$        
+  $\texttt{\color{#db6023}can}$ $\texttt{\color{#e8f2bd}i}$ $\texttt{\color{#e0cf34}stop}$ $\texttt{\color{#de510b}CHANGING}$ $\texttt{\color{#a31c0d}THIS OMG.}$        
 
 
-  $\texttt{\color{#e8f2bd}13 n' under iwec/dni}$
+ $\texttt{\color{#f7c33e} 13 n' under iwec/dni}$
 
   
 <details>
@@ -34,8 +34,8 @@ evil text im lazy to hide
 </details>
  ㅤ
 
-  people i luv 
-  
+[sign my ata NOW.](https://kickflip.atabook.org/) 
+
 WIP
 
 </p>
