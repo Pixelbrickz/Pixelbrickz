@@ -14,7 +14,8 @@
 
     
 
-<img width="70%" height="70%" src="https://github.com/user-attachments/assets/e825ccab-4155-43ec-bd5c-0059788ede42" />  
+<img width="50%" height="50%" src="https://github.com/user-attachments/assets/1e81a196-b8f6-4ab8-bc1c-38868a780e7d" />
+
 ㅤㅤㅤ
 
   $\texttt{\color{#db6023}can}$ $\texttt{\color{#e8f2bd}i}$ $\texttt{\color{#deb735}stop}$ $\texttt{\color{#cc6423}CHANGING}$ $\texttt{\color{#a31c0d}THIS OMG.}$        
