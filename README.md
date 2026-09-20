@@ -28,6 +28,11 @@
 <summary> </summary>
 big fat wip haii
 
+constantly tormented by violent thoughts and mentally ill etc etc. by no means a perfect person lol iwc
+
+ㅤㅤㅤ
+
+
   $\texttt{\color{#a9929b}color1}$ $\texttt{\color{#946487}color2}$ $\texttt{\color{#946487}color3}$ $\texttt{\color{#884f87}color4}$ $\texttt{\color{#a14ce2}color5}$        
 
 evil text im lazy to hide
