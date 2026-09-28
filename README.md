@@ -14,7 +14,7 @@
 
     
 
-<img width="50%" height="50%" src="https://github.com/user-attachments/assets/1e81a196-b8f6-4ab8-bc1c-38868a780e7d" />
+<img width="30%" height="30%" alt="solshot" src="https://github.com/user-attachments/assets/9e937578-816b-4596-80f0-3c8f86d5c9f9" />
 
 ㅤㅤㅤ
 
