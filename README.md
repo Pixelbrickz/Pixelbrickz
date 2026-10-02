@@ -28,7 +28,7 @@
 <summary> </summary>
 big fat wip haii
 
-constantly tormented by violent thoughts and mentally ill etc etc. by no means a perfect person lol iwc
+constant violent thoughts and mentally ill etc etc iwc
 
 ㅤㅤㅤ
 
