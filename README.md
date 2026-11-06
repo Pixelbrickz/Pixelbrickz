@@ -24,7 +24,7 @@
  $\texttt{\color{#deb735} -14 n' under iwec/dni}$
 
 
-I am BUSY and have a irl life so semi-active, dm me on discord if you want me to get on or something
+I am BUSY and have an irl life so semi-active, dm me on discord if you want me to get on or something
 
   
 <details>
