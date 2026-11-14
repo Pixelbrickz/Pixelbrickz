@@ -47,5 +47,6 @@ evil text im lazy to hide
 
 WIP
 
+this code is really old/messy and i hate it now, i'll recode it when its remade.
 </p>
 
